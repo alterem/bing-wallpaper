@@ -35,7 +35,7 @@ jobs:
           git config --local user.name "alterem"
           git add README.md
           git add bing-wallpaper.md
-          git commit -m "Update README.md & bing-wallpaper.md"
+          git commit -m "Get the latest wallpapers [skip ci] 🎉🎉"
       - name: Push changes
         uses: ad-m/github-push-action@master
         with:
