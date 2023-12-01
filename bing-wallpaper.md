@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-01 16:17:05
+#### 🚀Latest collection time: 2023-12-01 20:14:29
 
 2023-12-02 | [Iceberg in the Ross Sea, Antarctica (© Michel Roggo/Minden Pictures)](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_UHD.jpg)
 
