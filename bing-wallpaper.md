@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-02 04:15:19
+#### 🚀Latest collection time: 2023-12-02 08:15:25
+
+2023-12-03 | [North Gate of Angkor Thom, Angkor Archaeological Park, Cambodia (© Amazing Travel Lifestyle/Shutterstock)](https://cn.bing.com/th?id=OHR.AngkorPark_EN-US8869976296_UHD.jpg)
 
 2023-12-02 | [Iceberg in the Ross Sea, Antarctica (© Michel Roggo/Minden Pictures)](https://cn.bing.com/th?id=OHR.IcebergAntarctica_EN-US8733526190_UHD.jpg)
 
