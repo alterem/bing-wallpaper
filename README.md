@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-03 16:15:51
+#### 🚀Latest collection time: 2023-12-03 20:13:16
 
 ![Sandstone rock formations, Vermilion Cliffs National Monument, Arizona (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.VermilionCliffs_EN-US9543863428_UHD.jpg&w=960)
 Today: [Sandstone rock formations, Vermilion Cliffs National Monument, Arizona (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.VermilionCliffs_EN-US9543863428_UHD.jpg)
