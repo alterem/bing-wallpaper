@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-05 01:02:11
+#### 🚀Latest collection time: 2023-12-05 03:34:09
 
 2023-12-05 | [A mother cheetah and her cubs in the Maasai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CheetahDay_EN-US6775219587_UHD.jpg)
 
