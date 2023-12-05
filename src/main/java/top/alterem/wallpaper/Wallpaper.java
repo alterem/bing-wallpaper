@@ -145,7 +145,7 @@ public class Wallpaper {
         String today = String.format("Today: [%s](%s)", image.getDesc(), image.getUrl()) + System.lineSeparator();
         FileUtil.appendUtf8String(today, readme);
         // 拼markdown表头
-        FileUtil.appendUtf8String("|      |      |      |" + System.lineSeparator(), readme);
+        FileUtil.appendUtf8String("| 我只是一个表头 | 我只是一个表头 | 我只是一个表头 |" + System.lineSeparator(), readme);
         FileUtil.appendUtf8String("| :--: | :--: | :--: |" + System.lineSeparator(), readme);
         List<Image> images = imageList.stream().distinct().collect(Collectors.toList());
         int i = 1;
