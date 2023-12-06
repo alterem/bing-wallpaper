@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-06 04:15:00
+#### 🚀Latest collection time: 2023-12-06 09:02:06
 
 2023-12-06 | [Neuschwanstein and Hohenschwangau castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)](https://cn.bing.com/th?id=OHR.AlpsCastles_EN-US9735484506_UHD.jpg)
 
