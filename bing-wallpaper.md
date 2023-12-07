@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-07 12:16:40
+#### 🚀Latest collection time: 2023-12-07 16:17:30
+
+2023-12-08 | [USS Arizona Memorial, Pearl Harbor, Oahu, Hawaii (© Douglas Peebles Photography/Alamy)](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_UHD.jpg)
 
 2023-12-07 | [The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)](https://cn.bing.com/th?id=OHR.CERNCenter_EN-US9854867489_UHD.jpg)
 
