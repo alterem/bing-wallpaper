@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-07 09:01:31
+#### 🚀Latest collection time: 2023-12-07 12:16:40
 
 ![The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)](https://cn.bing.com/th?id=OHR.CERNCenter_EN-US9854867489_UHD.jpg&w=960)
 Today: [The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)](https://cn.bing.com/th?id=OHR.CERNCenter_EN-US9854867489_UHD.jpg)
