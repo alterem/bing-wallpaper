@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-08 09:02:12
+#### 🚀Latest collection time: 2023-12-08 12:16:24
 
 2023-12-08 | [USS Arizona Memorial, Pearl Harbor, Oahu, Hawaii (© Douglas Peebles Photography/Alamy)](https://cn.bing.com/th?id=OHR.PearlHarborArizona_EN-US9996821390_UHD.jpg)
 
