@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-10 00:15:56
+#### 🚀Latest collection time: 2023-12-10 04:13:14
 
 2023-12-10 | [Guanacos in Los Glaciares National Park, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_EN-US0251074250_UHD.jpg)
 
