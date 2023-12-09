@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-09 12:15:46
+#### 🚀Latest collection time: 2023-12-09 16:15:49
+
+2023-12-10 | [Guanacos in Los Glaciares National Park, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_EN-US0251074250_UHD.jpg)
 
 2023-12-09 | [La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)](https://cn.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_UHD.jpg)
 
