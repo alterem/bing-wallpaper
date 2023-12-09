@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-09 04:14:28
+#### 🚀Latest collection time: 2023-12-09 09:00:08
 
 ![La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)](https://cn.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_UHD.jpg&w=960)
 Today: [La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)](https://cn.bing.com/th?id=OHR.JerseyIsland_EN-US0109101063_UHD.jpg)
