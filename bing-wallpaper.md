@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-10 12:16:14
+#### 🚀Latest collection time: 2023-12-10 16:16:16
+
+2023-12-11 | [Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.SaharaDunes_EN-US0324387398_UHD.jpg)
 
 2023-12-10 | [Guanacos in Los Glaciares National Park, Patagonia, Argentina (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.PatagoniaGuanaco_EN-US0251074250_UHD.jpg)
 
