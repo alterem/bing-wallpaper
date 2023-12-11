@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-11 09:02:23
+#### 🚀Latest collection time: 2023-12-11 12:17:02
 
 2023-12-11 | [Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.SaharaDunes_EN-US0324387398_UHD.jpg)
 
