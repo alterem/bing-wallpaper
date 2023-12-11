@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-11 12:17:02
+#### 🚀Latest collection time: 2023-12-11 16:18:10
+
+2023-12-12 | [Winter at Huangshan, China (© Hung Chung Chih/Shutterstock)](https://cn.bing.com/th?id=OHR.MountainDayChina_EN-US0394775210_UHD.jpg)
 
 2023-12-11 | [Last rays of sun on a group of dunes, Sahara, Algeria (© AWL Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.SaharaDunes_EN-US0324387398_UHD.jpg)
 
