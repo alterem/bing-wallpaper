@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-13 16:17:26
+#### 🚀Latest collection time: 2023-12-13 20:26:04
 
 2023-12-14 | [Traditional rorbu houses, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_UHD.jpg)
 
