@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-13 04:14:34
+#### 🚀Latest collection time: 2023-12-13 09:01:51
 
 2023-12-13 | [Poinsettias (© Yarygin/Getty Images)](https://cn.bing.com/th?id=OHR.Poinsettia_EN-US0450019921_UHD.jpg)
 
