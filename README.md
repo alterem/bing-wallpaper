@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-14 16:17:21
+#### 🚀Latest collection time: 2023-12-14 20:26:03
 
 ![Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg&w=960)
 Today: [Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg)
