@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-14 12:16:47
+#### 🚀Latest collection time: 2023-12-14 16:17:21
+
+2023-12-15 | [Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg)
 
 2023-12-14 | [Traditional rorbu houses, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)](https://cn.bing.com/th?id=OHR.LofotenRorbu_EN-US1036629496_UHD.jpg)
 
