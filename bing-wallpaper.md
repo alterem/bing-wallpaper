@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-15 12:16:33
+#### 🚀Latest collection time: 2023-12-15 16:17:43
+
+2023-12-16 | [SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)](https://cn.bing.com/th?id=OHR.SantaPark_EN-US8274997583_UHD.jpg)
 
 2023-12-15 | [Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://cn.bing.com/th?id=OHR.BorealOwl_EN-US1112219806_UHD.jpg)
 
