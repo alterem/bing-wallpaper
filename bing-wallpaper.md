@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-18 04:13:26
+#### 🚀Latest collection time: 2023-12-18 09:02:37
 
 2023-12-18 | [Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)](https://cn.bing.com/th?id=OHR.WinterWaxwings_EN-US8520915413_UHD.jpg)
 
