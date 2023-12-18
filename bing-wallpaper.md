@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-18 12:16:49
+#### 🚀Latest collection time: 2023-12-18 16:18:12
+
+2023-12-19 | [Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CapitolReefSnow_EN-US8594085615_UHD.jpg)
 
 2023-12-18 | [Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)](https://cn.bing.com/th?id=OHR.WinterWaxwings_EN-US8520915413_UHD.jpg)
 
