@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-18 20:26:34
+#### 🚀Latest collection time: 2023-12-19 00:17:33
 
 ![Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CapitolReefSnow_EN-US8594085615_UHD.jpg&w=960)
 Today: [Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CapitolReefSnow_EN-US8594085615_UHD.jpg)
