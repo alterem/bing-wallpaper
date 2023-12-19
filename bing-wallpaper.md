@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-20 00:15:44
+#### 🚀Latest collection time: 2023-12-20 04:11:58
 
 2023-12-20 | [Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)](https://cn.bing.com/th?id=OHR.WarsawChristmas_EN-US8819312496_UHD.jpg)
 
