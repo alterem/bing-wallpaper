@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-21 12:16:26
+#### 🚀Latest collection time: 2023-12-21 16:16:55
+
+2023-12-22 | [Avenue of birch trees near Uffing am Staffelsee, Bavaria, Germany (© Reinhard Schmid/Huber/eStock Photo)](https://cn.bing.com/th?id=OHR.BavarianSolstice_EN-US9111666986_UHD.jpg)
 
 2023-12-21 | [Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)](https://cn.bing.com/th?id=OHR.ValGardenaItaly_EN-US8887980856_UHD.jpg)
 
