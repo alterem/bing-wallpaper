@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-22 09:00:03
+#### 🚀Latest collection time: 2023-12-22 12:15:54
 
 ![Avenue of birch trees near Uffing am Staffelsee, Bavaria, Germany (© Reinhard Schmid/Huber/eStock Photo)](https://cn.bing.com/th?id=OHR.BavarianSolstice_EN-US9111666986_UHD.jpg&w=960)
 Today: [Avenue of birch trees near Uffing am Staffelsee, Bavaria, Germany (© Reinhard Schmid/Huber/eStock Photo)](https://cn.bing.com/th?id=OHR.BavarianSolstice_EN-US9111666986_UHD.jpg)
