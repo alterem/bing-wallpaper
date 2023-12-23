@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-23 04:13:32
+#### 🚀Latest collection time: 2023-12-23 08:58:11
 
 ![Ljubljana, Slovenia (© kasto80/Getty images)](https://cn.bing.com/th?id=OHR.LjubljanaLights_EN-US9215683814_UHD.jpg&w=960)
 Today: [Ljubljana, Slovenia (© kasto80/Getty images)](https://cn.bing.com/th?id=OHR.LjubljanaLights_EN-US9215683814_UHD.jpg)
