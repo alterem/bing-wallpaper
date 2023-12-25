@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-25 12:16:26
+#### 🚀Latest collection time: 2023-12-25 16:17:13
+
+2023-12-26 | [Caribou running in snow, Alaska (© Michael Quinton/Minden Pictures)](https://cn.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_UHD.jpg)
 
 2023-12-25 | [Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_EN-US9431079565_UHD.jpg)
 
