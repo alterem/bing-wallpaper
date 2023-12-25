@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-25 04:12:59
+#### 🚀Latest collection time: 2023-12-25 09:01:41
 
 2023-12-25 | [Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.EstoniaXmasEve_EN-US9431079565_UHD.jpg)
 
