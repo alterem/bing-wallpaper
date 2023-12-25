@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-25 16:17:13
+#### 🚀Latest collection time: 2023-12-25 20:24:39
 
 2023-12-26 | [Caribou running in snow, Alaska (© Michael Quinton/Minden Pictures)](https://cn.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_UHD.jpg)
 
