@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-26 12:16:11
+#### 🚀Latest collection time: 2023-12-26 16:16:37
+
+2023-12-27 | [Winter sunrise in Dedham, Colchester, England (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_UHD.jpg)
 
 2023-12-26 | [Caribou running in snow, Alaska (© Michael Quinton/Minden Pictures)](https://cn.bing.com/th?id=OHR.CaribouChristmas_EN-US9744655068_UHD.jpg)
 
