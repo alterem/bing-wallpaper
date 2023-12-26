@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-26 20:23:58
+#### 🚀Latest collection time: 2023-12-27 00:16:25
 
 2023-12-27 | [Winter sunrise in Dedham, Colchester, England (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.BoxingDaySunrise_EN-US9951041123_UHD.jpg)
 
