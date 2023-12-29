@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-29 12:16:17
+#### 🚀Latest collection time: 2023-12-29 16:16:21
+
+2023-12-30 | [Oud-West, Amsterdam, Netherlands (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_UHD.jpg)
 
 2023-12-29 | [Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.GreenlandHumpback_EN-US0330682837_UHD.jpg)
 
