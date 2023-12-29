@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-29 16:16:22
+#### 🚀Latest collection time: 2023-12-29 20:21:53
 
 ![Oud-West, Amsterdam, Netherlands (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_UHD.jpg&w=960)
 Today: [Oud-West, Amsterdam, Netherlands (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.BlueAmsterdam_EN-US6868017848_UHD.jpg)
