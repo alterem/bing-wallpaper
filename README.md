@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-31 00:16:48
+#### 🚀Latest collection time: 2023-12-31 04:13:05
 
 ![Daiichi Tadami River Bridge, Fukushima prefecture, Japan (© DoctorEgg/Getty Images)](https://cn.bing.com/th?id=OHR.TadamiWinter_EN-US6973402256_UHD.jpg&w=960)
 Today: [Daiichi Tadami River Bridge, Fukushima prefecture, Japan (© DoctorEgg/Getty Images)](https://cn.bing.com/th?id=OHR.TadamiWinter_EN-US6973402256_UHD.jpg)
