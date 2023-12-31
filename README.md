@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2023-12-31 20:23:30
+#### 🚀Latest collection time: 2024-01-01 00:15:52
 
 ![Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)](https://cn.bing.com/th?id=OHR.ThailandNewYears_EN-US7115555089_UHD.jpg&w=960)
 Today: [Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)](https://cn.bing.com/th?id=OHR.ThailandNewYears_EN-US7115555089_UHD.jpg)
