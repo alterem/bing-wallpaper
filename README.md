@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-01 16:17:24
+#### 🚀Latest collection time: 2024-01-01 20:24:59
 
 ![Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_UHD.jpg&w=960)
 Today: [Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)](https://cn.bing.com/th?id=OHR.SleepingFox_EN-US7231760677_UHD.jpg)
