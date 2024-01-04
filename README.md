@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-04 09:01:10
+#### 🚀Latest collection time: 2024-01-04 12:16:54
 
 ![Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)](https://cn.bing.com/th?id=OHR.BodleianCeiling_EN-US7552379941_UHD.jpg&w=960)
 Today: [Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)](https://cn.bing.com/th?id=OHR.BodleianCeiling_EN-US7552379941_UHD.jpg)
