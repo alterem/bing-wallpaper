@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-04 20:24:34
+#### 🚀Latest collection time: 2024-01-05 00:17:38
 
 2024-01-05 | [Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GoldenGateLight_EN-US7749261025_UHD.jpg)
 
