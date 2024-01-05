@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-06 00:15:39
+#### 🚀Latest collection time: 2024-01-06 04:14:05
 
 ![International Ice and Snow Sculpture Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)](https://cn.bing.com/th?id=OHR.HarbinFestival_EN-US7952970209_UHD.jpg&w=960)
 Today: [International Ice and Snow Sculpture Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)](https://cn.bing.com/th?id=OHR.HarbinFestival_EN-US7952970209_UHD.jpg)
