@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-07 04:13:18
+#### 🚀Latest collection time: 2024-01-07 09:06:57
 
 ![Male chaffinch perched on a crab apple tree in winter (© Mark Hamblin/2020VISION/Minden Pictures)](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_EN-US1781584314_UHD.jpg&w=960)
 Today: [Male chaffinch perched on a crab apple tree in winter (© Mark Hamblin/2020VISION/Minden Pictures)](https://cn.bing.com/th?id=OHR.CrabappleChaffinch_EN-US1781584314_UHD.jpg)
