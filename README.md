@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-08 09:02:48
+#### 🚀Latest collection time: 2024-01-08 12:17:18
 
 ![Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.DevilsMarbles_EN-US8559239074_UHD.jpg&w=960)
 Today: [Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.DevilsMarbles_EN-US8559239074_UHD.jpg)
