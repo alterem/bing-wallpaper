@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-09 16:17:33
+#### 🚀Latest collection time: 2024-01-09 20:26:04
 
 ![Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)](https://cn.bing.com/th?id=OHR.BalloonDay_EN-US9019911805_UHD.jpg&w=960)
 Today: [Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)](https://cn.bing.com/th?id=OHR.BalloonDay_EN-US9019911805_UHD.jpg)
