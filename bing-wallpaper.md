@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-09 12:16:53
+#### 🚀Latest collection time: 2024-01-09 16:17:33
+
+2024-01-10 | [Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)](https://cn.bing.com/th?id=OHR.BalloonDay_EN-US9019911805_UHD.jpg)
 
 2024-01-09 | [Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg)
 
