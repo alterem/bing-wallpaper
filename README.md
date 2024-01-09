@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-09 09:03:02
+#### 🚀Latest collection time: 2024-01-09 12:16:53
 
 ![Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg&w=960)
 Today: [Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)](https://cn.bing.com/th?id=OHR.BerninaPass_EN-US8788589226_UHD.jpg)
