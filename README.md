@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-10 16:17:34
+#### 🚀Latest collection time: 2024-01-10 20:26:20
 
 ![Stairs on the shoreline at Mylopotamos Beach, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.MilopotamosStairs_EN-US9131506093_UHD.jpg&w=960)
 Today: [Stairs on the shoreline at Mylopotamos Beach, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.MilopotamosStairs_EN-US9131506093_UHD.jpg)
