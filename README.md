@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-11 20:25:57
+#### 🚀Latest collection time: 2024-01-12 00:18:13
 
 ![Eurasian lynx in the snow (© Jan Stria/Shutterstock)](https://cn.bing.com/th?id=OHR.LynxSnow_EN-US9261675170_UHD.jpg&w=960)
 Today: [Eurasian lynx in the snow (© Jan Stria/Shutterstock)](https://cn.bing.com/th?id=OHR.LynxSnow_EN-US9261675170_UHD.jpg)
