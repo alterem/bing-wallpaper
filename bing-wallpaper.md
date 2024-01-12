@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-13 00:17:34
+#### 🚀Latest collection time: 2024-01-13 04:14:31
 
 2024-01-13 | [Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)](https://cn.bing.com/th?id=OHR.BukhansanSeoul_EN-US0422922586_UHD.jpg)
 
