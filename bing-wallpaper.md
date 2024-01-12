@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-12 12:17:08
+#### 🚀Latest collection time: 2024-01-12 16:17:47
+
+2024-01-13 | [Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)](https://cn.bing.com/th?id=OHR.BukhansanSeoul_EN-US0422922586_UHD.jpg)
 
 2024-01-12 | [Eurasian lynx in the snow (© Jan Stria/Shutterstock)](https://cn.bing.com/th?id=OHR.LynxSnow_EN-US9261675170_UHD.jpg)
 
