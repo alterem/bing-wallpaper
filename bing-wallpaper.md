@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-14 00:16:07
+#### 🚀Latest collection time: 2024-01-14 04:13:44
 
 2024-01-14 | [Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)](https://cn.bing.com/th?id=OHR.HanaHighway_EN-US0637770298_UHD.jpg)
 
