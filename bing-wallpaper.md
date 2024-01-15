@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-15 12:17:10
+#### 🚀Latest collection time: 2024-01-15 16:18:28
+
+2024-01-16 | [Martin Luther King Jr. Memorial, Washington, DC (© kropic1/Shutterstock)](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_UHD.jpg)
 
 2024-01-15 | [Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.HokkaidoSwans_EN-US0905932812_UHD.jpg)
 
