@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-16 09:02:25
+#### 🚀Latest collection time: 2024-01-16 12:17:00
 
 2024-01-16 | [Martin Luther King Jr. Memorial, Washington, DC (© kropic1/Shutterstock)](https://cn.bing.com/th?id=OHR.MLKMemorialDC_EN-US1038696225_UHD.jpg)
 
