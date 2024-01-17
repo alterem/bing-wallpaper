@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-18 00:17:59
+#### 🚀Latest collection time: 2024-01-18 04:14:26
 
 ![Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_UHD.jpg&w=960)
 Today: [Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_UHD.jpg)
