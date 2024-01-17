@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-17 04:14:59
+#### 🚀Latest collection time: 2024-01-17 09:02:47
 
 ![Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)](https://cn.bing.com/th?id=OHR.LakeLouise_EN-US1133378386_UHD.jpg&w=960)
 Today: [Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)](https://cn.bing.com/th?id=OHR.LakeLouise_EN-US1133378386_UHD.jpg)
