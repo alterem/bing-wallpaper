@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-17 12:17:13
+#### 🚀Latest collection time: 2024-01-17 16:18:17
+
+2024-01-18 | [Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_UHD.jpg)
 
 2024-01-17 | [Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)](https://cn.bing.com/th?id=OHR.LakeLouise_EN-US1133378386_UHD.jpg)
 
