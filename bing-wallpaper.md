@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-18 12:16:37
+#### 🚀Latest collection time: 2024-01-18 16:17:13
+
+2024-01-19 | [Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)](https://cn.bing.com/th?id=OHR.ParisBridge_EN-US1771484789_UHD.jpg)
 
 2024-01-18 | [Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)](https://cn.bing.com/th?id=OHR.SleepyWolf_EN-US1667992900_UHD.jpg)
 
