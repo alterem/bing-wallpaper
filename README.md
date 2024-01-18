@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-18 20:26:18
+#### 🚀Latest collection time: 2024-01-19 00:17:29
 
 ![Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)](https://cn.bing.com/th?id=OHR.ParisBridge_EN-US1771484789_UHD.jpg&w=960)
 Today: [Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)](https://cn.bing.com/th?id=OHR.ParisBridge_EN-US1771484789_UHD.jpg)
