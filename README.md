@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-21 09:07:25
+#### 🚀Latest collection time: 2024-01-21 12:15:59
 
 ![Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)](https://cn.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_UHD.jpg&w=960)
 Today: [Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)](https://cn.bing.com/th?id=OHR.MacaroniPenguins_EN-US2046934125_UHD.jpg)
