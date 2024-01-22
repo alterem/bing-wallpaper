@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-22 09:05:29
+#### 🚀Latest collection time: 2024-01-22 12:17:21
 
 2024-01-22 | [Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)](https://cn.bing.com/th?id=OHR.SquirrelNetherlands_EN-US2174319616_UHD.jpg)
 
