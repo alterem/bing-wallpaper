@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-26 16:16:03
+#### 🚀Latest collection time: 2024-01-26 20:23:06
 
 2024-01-27 | [Northern hawk-owl (© Remo Savisaar/Alamy)](https://cn.bing.com/th?id=OHR.HawkOwl_EN-US6646901652_UHD.jpg)
 
