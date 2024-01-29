@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-29 08:58:31
+#### 🚀Latest collection time: 2024-01-29 12:15:44
 
 ![Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)](https://cn.bing.com/th?id=OHR.ChannelOutback_EN-US7094425288_UHD.jpg&w=960)
 Today: [Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)](https://cn.bing.com/th?id=OHR.ChannelOutback_EN-US7094425288_UHD.jpg)
