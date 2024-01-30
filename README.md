@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-30 08:57:56
+#### 🚀Latest collection time: 2024-01-30 12:15:01
 
 ![Golling Waterfall, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy)](https://cn.bing.com/th?id=OHR.GollingerFalls_EN-US7184224692_UHD.jpg&w=960)
 Today: [Golling Waterfall, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy)](https://cn.bing.com/th?id=OHR.GollingerFalls_EN-US7184224692_UHD.jpg)
