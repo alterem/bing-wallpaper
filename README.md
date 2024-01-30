@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-01-30 16:15:53
+#### 🚀Latest collection time: 2024-01-30 20:23:07
 
 ![Aýna, Sierra del Segura, Albacete, Spain (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.AlbaceteSpain_EN-US7443919036_UHD.jpg&w=960)
 Today: [Aýna, Sierra del Segura, Albacete, Spain (© Juan Maria Coy Vergara/Getty Images)](https://cn.bing.com/th?id=OHR.AlbaceteSpain_EN-US7443919036_UHD.jpg)
