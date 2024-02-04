@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-04 09:02:07
+#### 🚀Latest collection time: 2024-02-04 12:14:35
 
 2024-02-04 | [Grand Canal with Santa Maria della Salute Basilica, Venice, Italy (© RudyBalasko/Getty Images)](https://cn.bing.com/th?id=OHR.VeniceCarnival_EN-US7857642609_UHD.jpg)
 
