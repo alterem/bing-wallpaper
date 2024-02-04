@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-04 20:21:35
+#### 🚀Latest collection time: 2024-02-05 00:14:50
 
 2024-02-05 | [Devetashka Cave, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)](https://cn.bing.com/th?id=OHR.DevetashkaCave_EN-US7989247628_UHD.jpg)
 
