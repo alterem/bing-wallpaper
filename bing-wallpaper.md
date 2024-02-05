@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-05 20:23:49
+#### 🚀Latest collection time: 2024-02-06 00:15:58
 
 2024-02-06 | [Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)](https://cn.bing.com/th?id=OHR.WesternMonarchs_EN-US8386035297_UHD.jpg)
 
