@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-06 20:24:09
+#### 🚀Latest collection time: 2024-02-07 00:16:02
 
 ![Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_UHD.jpg&w=960)
 Today: [Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LakeTahoeRock_EN-US8513392756_UHD.jpg)
