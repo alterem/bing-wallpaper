@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-09 00:16:29
+#### 🚀Latest collection time: 2024-02-09 04:12:57
 
 ![Mount Hood, Oregon (© Inigo Cia/Getty Images)](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_UHD.jpg&w=960)
 Today: [Mount Hood, Oregon (© Inigo Cia/Getty Images)](https://cn.bing.com/th?id=OHR.MtHoodOregon_EN-US8773825867_UHD.jpg)
