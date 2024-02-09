@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-09 16:15:28
+#### 🚀Latest collection time: 2024-02-09 20:22:53
 
 2024-02-10 | [Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)](https://cn.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_UHD.jpg)
 
