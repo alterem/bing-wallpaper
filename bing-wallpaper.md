@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-10 12:16:51
+#### 🚀Latest collection time: 2024-02-10 16:14:25
+
+2024-02-11 | [Artists performing the dragon dance for Chinese New Year, Luzhou, China (© Liu Guoxing/VCG via Getty Images)](https://cn.bing.com/th?id=OHR.ChinaDragon_EN-US6781838142_UHD.jpg)
 
 2024-02-10 | [Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)](https://cn.bing.com/th?id=OHR.PegadungRocks_EN-US6654823877_UHD.jpg)
 
