@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-12 04:13:19
+#### 🚀Latest collection time: 2024-02-12 08:58:15
 
 ![Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)](https://cn.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_UHD.jpg&w=960)
 Today: [Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)](https://cn.bing.com/th?id=OHR.FolegandrosGreece_EN-US6921652492_UHD.jpg)
