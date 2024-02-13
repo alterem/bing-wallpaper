@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-14 00:17:02
+#### 🚀Latest collection time: 2024-02-14 04:15:30
 
 2024-02-14 | [Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)](https://cn.bing.com/th?id=OHR.MarignyBeads_EN-US7464992774_UHD.jpg)
 
