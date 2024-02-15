@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-15 08:58:06
+#### 🚀Latest collection time: 2024-02-15 12:16:15
 
 ![Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_UHD.jpg&w=960)
 Today: [Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)](https://cn.bing.com/th?id=OHR.BowingCrane_EN-US7534977512_UHD.jpg)
