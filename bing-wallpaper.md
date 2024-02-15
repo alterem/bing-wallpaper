@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-15 20:23:15
+#### 🚀Latest collection time: 2024-02-16 00:16:07
 
 2024-02-16 | [Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.HippopotamusDay_EN-US7629909300_UHD.jpg)
 
