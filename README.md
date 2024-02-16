@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-16 20:23:12
+#### 🚀Latest collection time: 2024-02-17 00:16:16
 
 ![Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_UHD.jpg&w=960)
 Today: [Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_UHD.jpg)
