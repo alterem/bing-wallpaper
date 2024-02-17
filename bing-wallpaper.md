@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-17 12:16:53
+#### 🚀Latest collection time: 2024-02-17 16:15:06
+
+2024-02-18 | [The Alvin Ailey American Dance Theater rehearsing 'Uptown,' 2009, New York (© STAN HONDA/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.AileyUptown_EN-US7790191198_UHD.jpg)
 
 2024-02-17 | [Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)](https://cn.bing.com/th?id=OHR.BackyardBird_EN-US8255123787_UHD.jpg)
 
