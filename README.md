@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-20 08:56:55
+#### 🚀Latest collection time: 2024-02-20 12:17:05
 
 ![Lincoln Memorial, Washington, DC (© Steve Whiston/Fallen Log Photography/Getty Images)](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_UHD.jpg&w=960)
 Today: [Lincoln Memorial, Washington, DC (© Steve Whiston/Fallen Log Photography/Getty Images)](https://cn.bing.com/th?id=OHR.LincolnSunset_EN-US8001542624_UHD.jpg)
