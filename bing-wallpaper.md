@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-21 12:15:27
+#### 🚀Latest collection time: 2024-02-21 16:17:24
+
+2024-02-22 | [Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)](https://cn.bing.com/th?id=OHR.YosemiteFirefall_EN-US8169903146_UHD.jpg)
 
 2024-02-21 | [Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_UHD.jpg)
 
