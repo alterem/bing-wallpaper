@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-21 08:58:03
+#### 🚀Latest collection time: 2024-02-21 12:15:27
 
 ![Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_UHD.jpg&w=960)
 Today: [Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)](https://cn.bing.com/th?id=OHR.PeakDistrictNP_EN-US8094447567_UHD.jpg)
