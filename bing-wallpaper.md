@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-23 20:23:20
+#### 🚀Latest collection time: 2024-02-24 00:15:55
 
 2024-02-24 | [Haghartsin Monastery, Dilijan National Park, Armenia (© Alexey Kharitonov/Shutterstock)](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_UHD.jpg)
 
