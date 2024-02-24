@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-24 12:15:37
+#### 🚀Latest collection time: 2024-02-24 16:14:30
+
+2024-02-25 | [Almond trees in full bloom, California (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AlmondBloom_EN-US2721273642_UHD.jpg)
 
 2024-02-24 | [Haghartsin Monastery, Dilijan National Park, Armenia (© Alexey Kharitonov/Shutterstock)](https://cn.bing.com/th?id=OHR.HaghartsinMonastery_EN-US2523109486_UHD.jpg)
 
