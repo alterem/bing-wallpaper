@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-25 12:15:41
+#### 🚀Latest collection time: 2024-02-25 16:14:43
+
+2024-02-26 | ['United We Stand' sculpture by Charles McGee, Charles H. Wright Museum of African American History, Detroit, Michigan (© Jim West/Alamy)](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_UHD.jpg)
 
 2024-02-25 | [Almond trees in full bloom, California (© Jeffrey Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AlmondBloom_EN-US2721273642_UHD.jpg)
 
