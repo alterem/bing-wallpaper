@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-25 20:21:35
+#### 🚀Latest collection time: 2024-02-26 00:16:02
 
 !['United We Stand' sculpture by Charles McGee, Charles H. Wright Museum of African American History, Detroit, Michigan (© Jim West/Alamy)](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_UHD.jpg&w=960)
 Today: ['United We Stand' sculpture by Charles McGee, Charles H. Wright Museum of African American History, Detroit, Michigan (© Jim West/Alamy)](https://cn.bing.com/th?id=OHR.WrightSculpture_EN-US2897504160_UHD.jpg)
