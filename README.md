@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-27 04:13:57
+#### 🚀Latest collection time: 2024-02-27 08:56:53
 
 ![Grand Canyon National Park, Arizona (© Jeremy Janus/Getty Images)](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_EN-US3010552047_UHD.jpg&w=960)
 Today: [Grand Canyon National Park, Arizona (© Jeremy Janus/Getty Images)](https://cn.bing.com/th?id=OHR.GrandCanyonWinter_EN-US3010552047_UHD.jpg)
