@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-27 20:22:58
+#### 🚀Latest collection time: 2024-02-28 00:17:30
 
 2024-02-28 | [Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)](https://cn.bing.com/th?id=OHR.PolarBearCubs_EN-US3160537454_UHD.jpg)
 
