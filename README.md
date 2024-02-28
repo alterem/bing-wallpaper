@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-29 00:16:40
+#### 🚀Latest collection time: 2024-02-29 04:14:23
 
 ![Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_UHD.jpg&w=960)
 Today: [Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_UHD.jpg)
