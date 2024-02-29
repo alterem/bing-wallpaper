@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-29 16:15:46
+#### 🚀Latest collection time: 2024-02-29 20:23:56
 
 ![Eurasian red squirrel (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.LeapingSquirrel_EN-US3514581405_UHD.jpg&w=960)
 Today: [Eurasian red squirrel (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.LeapingSquirrel_EN-US3514581405_UHD.jpg)
