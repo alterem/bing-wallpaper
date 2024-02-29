@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-02-29 12:15:24
+#### 🚀Latest collection time: 2024-02-29 16:15:46
+
+2024-03-01 | [Eurasian red squirrel (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.LeapingSquirrel_EN-US3514581405_UHD.jpg)
 
 2024-02-29 | [Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)](https://cn.bing.com/th?id=OHR.BamburghCastleUK_EN-US3358821704_UHD.jpg)
 
