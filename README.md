@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-03 00:15:21
+#### 🚀Latest collection time: 2024-03-03 04:12:19
 
 ![Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)](https://cn.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_UHD.jpg&w=960)
 Today: [Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)](https://cn.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_UHD.jpg)
