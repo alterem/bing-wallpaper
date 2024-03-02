@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-02 08:56:15
+#### 🚀Latest collection time: 2024-03-02 12:15:06
 
 2024-03-02 | [Women's suffrage parade on Fifth Avenue, Manhattan, New York City, October 23, 1915 (© Bettmann/Getty Images)](https://cn.bing.com/th?id=OHR.SuffrageParade_EN-US3648247280_UHD.jpg)
 
