@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-03 12:16:26
+#### 🚀Latest collection time: 2024-03-03 16:17:07
+
+2024-03-04 | [Leopard in a tree, Kruger National Park, South Africa (© Tonino De Marco/Minden Pictures)](https://cn.bing.com/th?id=OHR.KrugerLeopard_EN-US3980767237_UHD.jpg)
 
 2024-03-03 | [Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)](https://cn.bing.com/th?id=OHR.ModicaItaly_EN-US3843446204_UHD.jpg)
 
