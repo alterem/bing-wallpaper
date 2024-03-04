@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-05 00:17:46
+#### 🚀Latest collection time: 2024-03-05 04:13:19
 
 ![Arenal Volcano seen from Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)](https://cn.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_UHD.jpg&w=960)
 Today: [Arenal Volcano seen from Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)](https://cn.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_UHD.jpg)
