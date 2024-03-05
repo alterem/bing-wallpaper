@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-05 12:15:51
+#### 🚀Latest collection time: 2024-03-05 16:16:53
+
+2024-03-06 | [Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)](https://cn.bing.com/th?id=OHR.BangkokCircle_EN-US4243452532_UHD.jpg)
 
 2024-03-05 | [Arenal Volcano seen from Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)](https://cn.bing.com/th?id=OHR.ArenalCostaRica_EN-US4075825664_UHD.jpg)
 
