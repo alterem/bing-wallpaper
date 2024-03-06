@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-06 12:15:16
+#### 🚀Latest collection time: 2024-03-06 16:17:42
+
+2024-03-07 | [Wahclella Falls in the Columbia River Gorge, Oregon (© Eric Vogt/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.WahclellaFalls_EN-US4371863309_UHD.jpg)
 
 2024-03-06 | [Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)](https://cn.bing.com/th?id=OHR.BangkokCircle_EN-US4243452532_UHD.jpg)
 
