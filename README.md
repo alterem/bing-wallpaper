@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-07 16:13:30
+#### 🚀Latest collection time: 2024-03-07 20:23:45
 
 ![Roques de Benet, Els Ports Natural Park, Catalonia, Spain (© Sergi Boixader/Alamy)](https://cn.bing.com/th?id=OHR.TarragonaSpain_EN-US4664908149_UHD.jpg&w=960)
 Today: [Roques de Benet, Els Ports Natural Park, Catalonia, Spain (© Sergi Boixader/Alamy)](https://cn.bing.com/th?id=OHR.TarragonaSpain_EN-US4664908149_UHD.jpg)
