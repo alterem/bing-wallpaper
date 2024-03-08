@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-08 16:16:05
+#### 🚀Latest collection time: 2024-03-08 20:23:38
 
 2024-03-09 | [Tate Modern lit up for International Women's Day, London, England (© Stephen Chung/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.TateLightUp_EN-US0656439011_UHD.jpg)
 
