@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-09 20:21:02
+#### 🚀Latest collection time: 2024-03-10 00:14:29
 
 2024-03-10 | [Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BistiBlue_EN-US1090853434_UHD.jpg)
 
