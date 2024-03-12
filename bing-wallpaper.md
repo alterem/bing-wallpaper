@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-12 12:18:03
+#### 🚀Latest collection time: 2024-03-12 16:15:59
+
+2024-03-13 | [Bryce Canyon National Park, Utah (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BryceSnow_EN-US1471442313_UHD.jpg)
 
 2024-03-12 | [A koala sleeping in a eucalyptus tree, Australia (© Anton Rogozin/Getty Images)](https://cn.bing.com/th?id=OHR.SleepyKoala_EN-US1399776436_UHD.jpg)
 
