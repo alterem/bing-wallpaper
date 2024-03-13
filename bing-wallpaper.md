@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-13 20:24:11
+#### 🚀Latest collection time: 2024-03-14 00:15:53
 
 2024-03-14 | [Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.MagadiFlamingos_EN-US1720896379_UHD.jpg)
 
