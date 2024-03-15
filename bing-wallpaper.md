@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-15 12:16:06
+#### 🚀Latest collection time: 2024-03-15 16:16:33
+
+2024-03-16 | [Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_UHD.jpg)
 
 2024-03-15 | [Wat Phra Ngam, Ayutthaya Historical Park, Thailand (© boonchai wedmakawand/Alamy)](https://cn.bing.com/th?id=OHR.AyutthayaTree_EN-US1871119120_UHD.jpg)
 
