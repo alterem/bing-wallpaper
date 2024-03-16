@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-16 08:56:45
+#### 🚀Latest collection time: 2024-03-16 12:15:05
 
 ![Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_UHD.jpg&w=960)
 Today: [Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_UHD.jpg)
