@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-16 12:15:05
+#### 🚀Latest collection time: 2024-03-16 16:15:11
+
+2024-03-17 | [Giant panda eating bamboo, Chengdu, China (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_UHD.jpg)
 
 2024-03-16 | [Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AnzaBorregoBloom_EN-US1951730180_UHD.jpg)
 
