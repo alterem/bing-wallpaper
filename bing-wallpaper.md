@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-17 12:15:37
+#### 🚀Latest collection time: 2024-03-17 16:14:57
+
+2024-03-18 | [St. Finian's Bay, County Kerry, Ireland (© Atlantide Phototravel/Getty Images)](https://cn.bing.com/th?id=OHR.StFiniansBay_EN-US2242323244_UHD.jpg)
 
 2024-03-17 | [Giant panda eating bamboo, Chengdu, China (© Suzi Eszterhas/Minden Pictures)](https://cn.bing.com/th?id=OHR.BambooPanda_EN-US2038899729_UHD.jpg)
 
