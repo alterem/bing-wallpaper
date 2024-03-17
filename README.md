@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-17 20:22:40
+#### 🚀Latest collection time: 2024-03-18 00:14:35
 
 ![St. Finian's Bay, County Kerry, Ireland (© Atlantide Phototravel/Getty Images)](https://cn.bing.com/th?id=OHR.StFiniansBay_EN-US2242323244_UHD.jpg&w=960)
 Today: [St. Finian's Bay, County Kerry, Ireland (© Atlantide Phototravel/Getty Images)](https://cn.bing.com/th?id=OHR.StFiniansBay_EN-US2242323244_UHD.jpg)
