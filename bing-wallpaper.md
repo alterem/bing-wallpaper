@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-18 12:15:31
+#### 🚀Latest collection time: 2024-03-18 16:16:29
+
+2024-03-19 | [Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)](https://cn.bing.com/th?id=OHR.ElephantRock_EN-US2340789308_UHD.jpg)
 
 2024-03-18 | [St. Finian's Bay, County Kerry, Ireland (© Atlantide Phototravel/Getty Images)](https://cn.bing.com/th?id=OHR.StFiniansBay_EN-US2242323244_UHD.jpg)
 
