@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-19 12:16:14
+#### 🚀Latest collection time: 2024-03-19 16:16:15
+
+2024-03-20 | [Tree frog on leaf (© Tetsuya Tanooka/DEEPOL by plainpicture)](https://cn.bing.com/th?id=OHR.SpringFrog_EN-US7109699294_UHD.jpg)
 
 2024-03-19 | [Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)](https://cn.bing.com/th?id=OHR.ElephantRock_EN-US2340789308_UHD.jpg)
 
