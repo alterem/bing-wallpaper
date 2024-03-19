@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-19 04:14:04
+#### 🚀Latest collection time: 2024-03-19 08:57:45
 
 ![Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)](https://cn.bing.com/th?id=OHR.ElephantRock_EN-US2340789308_UHD.jpg&w=960)
 Today: [Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)](https://cn.bing.com/th?id=OHR.ElephantRock_EN-US2340789308_UHD.jpg)
