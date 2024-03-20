@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-20 08:57:26
+#### 🚀Latest collection time: 2024-03-20 12:17:00
 
 ![Tree frog on leaf (© Tetsuya Tanooka/DEEPOL by plainpicture)](https://cn.bing.com/th?id=OHR.SpringFrog_EN-US7109699294_UHD.jpg&w=960)
 Today: [Tree frog on leaf (© Tetsuya Tanooka/DEEPOL by plainpicture)](https://cn.bing.com/th?id=OHR.SpringFrog_EN-US7109699294_UHD.jpg)
