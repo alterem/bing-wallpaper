@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-20 20:23:36
+#### 🚀Latest collection time: 2024-03-21 00:17:34
 
 2024-03-21 | [The Jefferson Memorial during the Cherry Blossom Festival, Washington, DC (© f11photo/Shutterstock)](https://cn.bing.com/th?id=OHR.CherryBlossomsDC_EN-US3285783737_UHD.jpg)
 
