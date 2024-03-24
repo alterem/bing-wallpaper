@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-24 09:03:46
+#### 🚀Latest collection time: 2024-03-24 12:16:35
 
 ![Large anvil clouds above the Amazon in Brazil (© NASA)](https://cn.bing.com/th?id=OHR.AmazonClouds_EN-US2049846873_UHD.jpg&w=960)
 Today: [Large anvil clouds above the Amazon in Brazil (© NASA)](https://cn.bing.com/th?id=OHR.AmazonClouds_EN-US2049846873_UHD.jpg)
