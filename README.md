@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-24 16:15:12
+#### 🚀Latest collection time: 2024-03-24 20:23:14
 
 ![Silvereyes with cherry blossoms, South Korea (© TigerSeo/Getty Images)](https://cn.bing.com/th?id=OHR.WhiteEyes_EN-US2249866810_UHD.jpg&w=960)
 Today: [Silvereyes with cherry blossoms, South Korea (© TigerSeo/Getty Images)](https://cn.bing.com/th?id=OHR.WhiteEyes_EN-US2249866810_UHD.jpg)
