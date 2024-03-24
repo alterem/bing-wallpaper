@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-24 12:16:35
+#### 🚀Latest collection time: 2024-03-24 16:15:12
+
+2024-03-25 | [Silvereyes with cherry blossoms, South Korea (© TigerSeo/Getty Images)](https://cn.bing.com/th?id=OHR.WhiteEyes_EN-US2249866810_UHD.jpg)
 
 2024-03-24 | [Large anvil clouds above the Amazon in Brazil (© NASA)](https://cn.bing.com/th?id=OHR.AmazonClouds_EN-US2049846873_UHD.jpg)
 
