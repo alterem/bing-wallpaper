@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-28 12:15:03
+#### 🚀Latest collection time: 2024-03-28 16:16:01
+
+2024-03-29 | [Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_EN-US2613653434_UHD.jpg)
 
 2024-03-28 | [Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy)](https://cn.bing.com/th?id=OHR.TeatroColon_EN-US2518867279_UHD.jpg)
 
