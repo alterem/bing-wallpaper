@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-29 12:16:33
+#### 🚀Latest collection time: 2024-03-29 16:16:16
+
+2024-03-30 | [South Stack Lighthouse at sunset, Holy Island, Wales (© mariotlr/Getty Images)](https://cn.bing.com/th?id=OHR.SouthStackLight_EN-US2733077237_UHD.jpg)
 
 2024-03-29 | [Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)](https://cn.bing.com/th?id=OHR.ShanghaiBlossoms_EN-US2613653434_UHD.jpg)
 
