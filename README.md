@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-29 16:16:16
+#### 🚀Latest collection time: 2024-03-29 20:25:24
 
 ![South Stack Lighthouse at sunset, Holy Island, Wales (© mariotlr/Getty Images)](https://cn.bing.com/th?id=OHR.SouthStackLight_EN-US2733077237_UHD.jpg&w=960)
 Today: [South Stack Lighthouse at sunset, Holy Island, Wales (© mariotlr/Getty Images)](https://cn.bing.com/th?id=OHR.SouthStackLight_EN-US2733077237_UHD.jpg)
