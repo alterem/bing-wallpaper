@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-31 16:16:23
+#### 🚀Latest collection time: 2024-03-31 20:22:35
 
 ![Easter eggs painted by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_UHD.jpg&w=960)
 Today: [Easter eggs painted by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_UHD.jpg)
