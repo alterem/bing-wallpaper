@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-31 12:16:47
+#### 🚀Latest collection time: 2024-03-31 16:16:23
+
+2024-04-01 | [Easter eggs painted by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)](https://cn.bing.com/th?id=OHR.HungarianEggs_EN-US3026213374_UHD.jpg)
 
 2024-03-31 | [Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://cn.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_UHD.jpg)
 
