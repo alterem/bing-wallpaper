@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-03-31 09:03:53
+#### 🚀Latest collection time: 2024-03-31 12:16:47
 
 ![Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://cn.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_UHD.jpg&w=960)
 Today: [Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://cn.bing.com/th?id=OHR.SleepySloth_EN-US2834457510_UHD.jpg)
