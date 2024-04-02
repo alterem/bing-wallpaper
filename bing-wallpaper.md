@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-02 12:15:45
+#### 🚀Latest collection time: 2024-04-02 16:16:53
+
+2024-04-03 | [Beech trees and wild anemones, Jutland, Denmark (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.JutlandSpring_EN-US3202382460_UHD.jpg)
 
 2024-04-02 | ['Vanishing Point' by French street artist JR on the facade of Palazzo Farnese, Rome, Italy (© Fabrizio Troiani/Alamy)](https://cn.bing.com/th?id=OHR.PalazzoFarnese_EN-US3142967327_UHD.jpg)
 
