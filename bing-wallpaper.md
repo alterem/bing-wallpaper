@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-04 04:15:23
+#### 🚀Latest collection time: 2024-04-04 08:59:43
 
 2024-04-04 | [A rainbow in At-Bashy District  , Kakshaal Too Mountains, Naryn Province, Kyrgyzstan (© Emad aljumah/Getty Images)](https://cn.bing.com/th?id=OHR.KyrgyzstanRainbow_EN-US3266651913_UHD.jpg)
 
