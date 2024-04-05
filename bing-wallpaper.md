@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-05 12:18:19
+#### 🚀Latest collection time: 2024-04-05 20:23:26
+
+2024-04-06 | [The Bahamas photographed from the International Space Station (© NASA)](https://cn.bing.com/th?id=OHR.BahamasSpace_EN-US1544254149_UHD.jpg)
 
 2024-04-05 | [Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)](https://cn.bing.com/th?id=OHR.AntelopeBotswana_EN-US3335739405_UHD.jpg)
 
