@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-05 08:58:54
+#### 🚀Latest collection time: 2024-04-05 12:18:19
 
 ![Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)](https://cn.bing.com/th?id=OHR.AntelopeBotswana_EN-US3335739405_UHD.jpg&w=960)
 Today: [Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)](https://cn.bing.com/th?id=OHR.AntelopeBotswana_EN-US3335739405_UHD.jpg)
