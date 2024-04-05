@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-05 20:23:26
+#### 🚀Latest collection time: 2024-04-06 00:18:18
 
 2024-04-06 | [The Bahamas photographed from the International Space Station (© NASA)](https://cn.bing.com/th?id=OHR.BahamasSpace_EN-US1544254149_UHD.jpg)
 
