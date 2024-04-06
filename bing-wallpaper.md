@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-07 00:16:14
+#### 🚀Latest collection time: 2024-04-07 04:14:29
 
 2024-04-07 | [Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)](https://cn.bing.com/th?id=OHR.JapanHimeji_EN-US1768279571_UHD.jpg)
 
