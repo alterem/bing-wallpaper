@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-09 00:19:17
+#### 🚀Latest collection time: 2024-04-09 04:15:41
 
 ![Total solar eclipse photographed from Madras, Oregon on August 21, 2017 (© NASA/Aubrey Gemignani)](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_UHD.jpg&w=960)
 Today: [Total solar eclipse photographed from Madras, Oregon on August 21, 2017 (© NASA/Aubrey Gemignani)](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_UHD.jpg)
