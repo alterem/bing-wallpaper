@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-08 12:16:30
+#### 🚀Latest collection time: 2024-04-08 16:17:11
+
+2024-04-09 | [Total solar eclipse photographed from Madras, Oregon on August 21, 2017 (© NASA/Aubrey Gemignani)](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_UHD.jpg)
 
 2024-04-08 | [North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)](https://cn.bing.com/th?id=OHR.BeaverDenali_EN-US1894047698_UHD.jpg)
 
