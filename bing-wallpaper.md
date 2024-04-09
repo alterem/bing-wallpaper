@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-09 12:17:10
+#### 🚀Latest collection time: 2024-04-09 16:16:50
+
+2024-04-10 | [Tulip fields in spring, Skagit Valley, Washington (© Claudia Cooper/Getty Images)](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_UHD.jpg)
 
 2024-04-09 | [Total solar eclipse photographed from Madras, Oregon on August 21, 2017 (© NASA/Aubrey Gemignani)](https://cn.bing.com/th?id=OHR.SolarEclipseOregon_EN-US2134131862_UHD.jpg)
 
