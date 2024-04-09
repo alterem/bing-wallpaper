@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-09 20:25:16
+#### 🚀Latest collection time: 2024-04-10 00:15:39
 
 ![Tulip fields in spring, Skagit Valley, Washington (© Claudia Cooper/Getty Images)](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_UHD.jpg&w=960)
 Today: [Tulip fields in spring, Skagit Valley, Washington (© Claudia Cooper/Getty Images)](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_UHD.jpg)
