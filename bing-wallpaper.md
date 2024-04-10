@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-10 12:15:34
+#### 🚀Latest collection time: 2024-04-10 16:19:01
+
+2024-04-11 | [Burrowing owl chicks near a burrow, Wyoming (© Danita Delimont/Getty Images)](https://cn.bing.com/th?id=OHR.OwlSiblings_EN-US2594321387_UHD.jpg)
 
 2024-04-10 | [Tulip fields in spring, Skagit Valley, Washington (© Claudia Cooper/Getty Images)](https://cn.bing.com/th?id=OHR.SkagitValleyTulips_EN-US2489408645_UHD.jpg)
 
