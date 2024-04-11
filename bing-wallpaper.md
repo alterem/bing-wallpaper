@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-12 00:14:36
+#### 🚀Latest collection time: 2024-04-12 04:14:34
 
 2024-04-12 | [Aerial view of Churún Merú waterfall, Venezuela (© AirPano LLC/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.DragonWaterfall_EN-US2799967886_UHD.jpg)
 
