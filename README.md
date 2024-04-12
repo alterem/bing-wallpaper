@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-13 00:16:25
+#### 🚀Latest collection time: 2024-04-13 04:13:26
 
 ![Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)](https://cn.bing.com/th?id=OHR.SunsetArchesNP_EN-US2974318595_UHD.jpg&w=960)
 Today: [Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)](https://cn.bing.com/th?id=OHR.SunsetArchesNP_EN-US2974318595_UHD.jpg)
