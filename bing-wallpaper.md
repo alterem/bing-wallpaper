@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-12 12:16:30
+#### 🚀Latest collection time: 2024-04-12 16:17:33
+
+2024-04-13 | [Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)](https://cn.bing.com/th?id=OHR.SunsetArchesNP_EN-US2974318595_UHD.jpg)
 
 2024-04-12 | [Aerial view of Churún Merú waterfall, Venezuela (© AirPano LLC/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.DragonWaterfall_EN-US2799967886_UHD.jpg)
 
