@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-14 12:37:36
+#### 🚀Latest collection time: 2024-04-14 18:40:08
+
+2024-04-15 | [Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)](https://cn.bing.com/th?id=OHR.BowlingBallCali_EN-US3241530931_UHD.jpg)
 
 2024-04-14 | [Apple trees in spring, Germany (© Smileus/Getty Images)](https://cn.bing.com/th?id=OHR.SpringApple_EN-US3148648329_UHD.jpg)
 
