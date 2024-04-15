@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-15 12:28:36
+#### 🚀Latest collection time: 2024-04-15 16:14:02
+
+2024-04-16 | [The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_UHD.jpg)
 
 2024-04-15 | [Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)](https://cn.bing.com/th?id=OHR.BowlingBallCali_EN-US3241530931_UHD.jpg)
 
