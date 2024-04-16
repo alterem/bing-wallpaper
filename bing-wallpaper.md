@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-16 12:16:04
+#### 🚀Latest collection time: 2024-04-16 16:16:54
+
+2024-04-17 | [Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)](https://cn.bing.com/th?id=OHR.UnionSquareNYC_EN-US3633149979_UHD.jpg)
 
 2024-04-16 | [The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)](https://cn.bing.com/th?id=OHR.RedBallBelgium_EN-US3314192425_UHD.jpg)
 
