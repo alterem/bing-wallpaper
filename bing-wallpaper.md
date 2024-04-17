@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-17 08:59:33
+#### 🚀Latest collection time: 2024-04-17 12:17:04
 
 2024-04-17 | [Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)](https://cn.bing.com/th?id=OHR.UnionSquareNYC_EN-US3633149979_UHD.jpg)
 
