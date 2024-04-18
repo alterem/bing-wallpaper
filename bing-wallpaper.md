@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-18 20:24:15
+#### 🚀Latest collection time: 2024-04-19 00:17:12
 
 2024-04-19 | [Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)](https://cn.bing.com/th?id=OHR.AvilaSpain_EN-US3559491003_UHD.jpg)
 
