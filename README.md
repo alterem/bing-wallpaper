@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-18 08:58:46
+#### 🚀Latest collection time: 2024-04-18 12:15:52
 
 ![American black bear cub in spring, Shenandoah National Park, Virginia (© Scott Suriano/Getty Images)](https://cn.bing.com/th?id=OHR.SpringCub_EN-US3818124104_UHD.jpg&w=960)
 Today: [American black bear cub in spring, Shenandoah National Park, Virginia (© Scott Suriano/Getty Images)](https://cn.bing.com/th?id=OHR.SpringCub_EN-US3818124104_UHD.jpg)
