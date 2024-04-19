@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-19 12:15:44
+#### 🚀Latest collection time: 2024-04-19 16:17:08
+
+2024-04-20 | [The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)](https://cn.bing.com/th?id=OHR.OrkneyStones_EN-US3355508244_UHD.jpg)
 
 2024-04-19 | [Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)](https://cn.bing.com/th?id=OHR.AvilaSpain_EN-US3559491003_UHD.jpg)
 
