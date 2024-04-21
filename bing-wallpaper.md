@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-21 04:13:10
+#### 🚀Latest collection time: 2024-04-21 09:04:05
 
 2024-04-21 | [Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_UHD.jpg)
 
