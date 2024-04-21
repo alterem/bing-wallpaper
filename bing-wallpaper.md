@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-21 12:15:51
+#### 🚀Latest collection time: 2024-04-21 16:15:47
+
+2024-04-22 | [Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)](https://cn.bing.com/th?id=OHR.CadesCove_EN-US4359486356_UHD.jpg)
 
 2024-04-21 | [Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)](https://cn.bing.com/th?id=OHR.YellowstoneGeyser_EN-US3470127711_UHD.jpg)
 
