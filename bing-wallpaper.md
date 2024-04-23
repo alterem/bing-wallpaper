@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-23 12:16:36
+#### 🚀Latest collection time: 2024-04-23 16:17:02
+
+2024-04-24 | [Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US5011442234_UHD.jpg)
 
 2024-04-23 | [Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)](https://cn.bing.com/th?id=OHR.EarthDayTurtle_EN-US4769423754_UHD.jpg)
 
