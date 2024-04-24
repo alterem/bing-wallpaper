@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-24 04:14:07
+#### 🚀Latest collection time: 2024-04-24 09:00:50
+
+2024-04-24 | [Library of Trinity College Dublin, Ireland (© Vincent Isore/Getty Images)](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_UHD.jpg)
 
 2024-04-24 | [Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US5011442234_UHD.jpg)
 
