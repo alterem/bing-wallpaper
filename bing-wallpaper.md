@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-24 12:15:51
+#### 🚀Latest collection time: 2024-04-24 16:18:11
+
+2024-04-25 | [White trilliums blooming in Ontario, Canada (© Jun Zhang/Getty Images)](https://cn.bing.com/th?id=OHR.TrilliumOntario_EN-US5180679465_UHD.jpg)
 
 2024-04-24 | [Library of Trinity College Dublin, Ireland (© Vincent Isore/Getty Images)](https://cn.bing.com/th?id=OHR.TrinityDublin_EN-US9065489677_UHD.jpg)
 
