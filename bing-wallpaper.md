@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-25 20:20:57
+#### 🚀Latest collection time: 2024-04-26 00:16:55
 
 2024-04-26 | [Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)](https://cn.bing.com/th?id=OHR.PenguinDirections_EN-US5469437415_UHD.jpg)
 
