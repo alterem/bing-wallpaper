@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-28 16:17:27
+#### 🚀Latest collection time: 2024-04-28 20:25:35
 
 2024-04-29 | [El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GuadalupeTexas_EN-US5906260854_UHD.jpg)
 
