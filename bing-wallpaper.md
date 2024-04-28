@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-28 09:04:35
+#### 🚀Latest collection time: 2024-04-28 12:15:21
 
 2024-04-28 | [Leucistic Anna's hummingbird in the Australian Garden, UC Santa Cruz Arboretum, California (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.LeucisticHummingbird_EN-US5796079642_UHD.jpg)
 
