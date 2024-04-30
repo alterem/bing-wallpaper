@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-04-30 20:25:09
+#### 🚀Latest collection time: 2024-05-01 00:17:30
 
 ![Cheetah in morning rain, Ndutu Plains, Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)](https://cn.bing.com/th?id=OHR.CheetahRain_EN-US6179670004_UHD.jpg&w=960)
 Today: [Cheetah in morning rain, Ndutu Plains, Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)](https://cn.bing.com/th?id=OHR.CheetahRain_EN-US6179670004_UHD.jpg)
