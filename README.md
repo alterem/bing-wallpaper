@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-01 16:20:12
+#### 🚀Latest collection time: 2024-05-01 20:26:05
 
 ![Hawaiian lei flower garlands (© Jotika Pun/Shutterstock)](https://cn.bing.com/th?id=OHR.HawaiianLei_EN-US6290126556_UHD.jpg&w=960)
 Today: [Hawaiian lei flower garlands (© Jotika Pun/Shutterstock)](https://cn.bing.com/th?id=OHR.HawaiianLei_EN-US6290126556_UHD.jpg)
