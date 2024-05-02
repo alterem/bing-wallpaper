@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-02 12:16:10
+#### 🚀Latest collection time: 2024-05-02 16:17:29
+
+2024-05-03 | [Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.CratersOfTheMoon_EN-US6516727783_UHD.jpg)
 
 2024-05-02 | [Hawaiian lei flower garlands (© Jotika Pun/Shutterstock)](https://cn.bing.com/th?id=OHR.HawaiianLei_EN-US6290126556_UHD.jpg)
 
