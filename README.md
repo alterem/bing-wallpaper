@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-03 20:24:23
+#### 🚀Latest collection time: 2024-05-04 00:17:48
 
 ![Brittlebushes blooming in springtime, Sonoran Desert, Arizona (© Charles Harker/Getty Images)](https://cn.bing.com/th?id=OHR.SonoranSpring_EN-US9207877073_UHD.jpg&w=960)
 Today: [Brittlebushes blooming in springtime, Sonoran Desert, Arizona (© Charles Harker/Getty Images)](https://cn.bing.com/th?id=OHR.SonoranSpring_EN-US9207877073_UHD.jpg)
