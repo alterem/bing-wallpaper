@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-04 20:22:55
+#### 🚀Latest collection time: 2024-05-05 00:16:21
 
 2024-05-05 | [Ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)](https://cn.bing.com/th?id=OHR.JediMonastery_EN-US9398447907_UHD.jpg)
 
