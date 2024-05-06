@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-07 00:18:53
+#### 🚀Latest collection time: 2024-05-07 04:14:05
 
 ![The Roaches, Peak District, England (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_EN-US9733115206_UHD.jpg&w=960)
 Today: [The Roaches, Peak District, England (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.TheRoachesPeakDistrict_EN-US9733115206_UHD.jpg)
