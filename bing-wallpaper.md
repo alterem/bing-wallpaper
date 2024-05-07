@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-07 16:17:11
+#### 🚀Latest collection time: 2024-05-07 20:25:19
 
 2024-05-08 | [A duckling swimming in a water meadow, Suffolk, England (© Nick Hurst/Getty Images)](https://cn.bing.com/th?id=OHR.LittleDuckling_EN-US0447954247_UHD.jpg)
 
