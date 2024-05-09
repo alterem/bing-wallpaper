@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-09 09:01:20
+#### 🚀Latest collection time: 2024-05-09 12:19:29
 
 2024-05-09 | [View of Château d'If in the port of Marseille, France (© Sergii Figurnyi/Alamy)](https://cn.bing.com/th?id=OHR.PortMarseille_EN-US0558123049_UHD.jpg)
 
