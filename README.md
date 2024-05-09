@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-10 00:17:57
+#### 🚀Latest collection time: 2024-05-10 04:14:15
 
 ![Tulips at Emirgan Park in Istanbul, Türkiye (© Ozbalci/Getty Images)](https://cn.bing.com/th?id=OHR.EmirganPark_EN-US0659286862_UHD.jpg&w=960)
 Today: [Tulips at Emirgan Park in Istanbul, Türkiye (© Ozbalci/Getty Images)](https://cn.bing.com/th?id=OHR.EmirganPark_EN-US0659286862_UHD.jpg)
