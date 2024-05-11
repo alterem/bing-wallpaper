@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-11 12:16:41
+#### 🚀Latest collection time: 2024-05-11 16:16:29
+
+2024-05-12 | [An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_EN-US0916417036_UHD.jpg)
 
 2024-05-11 | [Misool, Raja Ampat Islands, Indonesia (© Giordano Cipriani/Getty Images)](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_EN-US0805176947_UHD.jpg)
 
