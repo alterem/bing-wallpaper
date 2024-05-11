@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-12 00:16:24
+#### 🚀Latest collection time: 2024-05-12 04:14:17
 
 2024-05-12 | [An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)](https://cn.bing.com/th?id=OHR.TexasIndigoBunting_EN-US0916417036_UHD.jpg)
 
