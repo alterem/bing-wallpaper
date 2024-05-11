@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-11 04:13:46
+#### 🚀Latest collection time: 2024-05-11 09:01:00
 
 2024-05-11 | [Misool, Raja Ampat Islands, Indonesia (© Giordano Cipriani/Getty Images)](https://cn.bing.com/th?id=OHR.MisoolRajaAmpat_EN-US0805176947_UHD.jpg)
 
