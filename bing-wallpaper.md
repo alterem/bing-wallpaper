@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-13 12:17:22
+#### 🚀Latest collection time: 2024-05-13 16:18:50
+
+2024-05-14 | [Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)](https://cn.bing.com/th?id=OHR.NamibiaCanyon_EN-US1337379319_UHD.jpg)
 
 2024-05-13 | [Guanaco mother and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)](https://cn.bing.com/th?id=OHR.GuanacoMother_EN-US1023542218_UHD.jpg)
 
