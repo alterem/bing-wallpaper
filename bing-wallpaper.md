@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-14 04:14:13
+#### 🚀Latest collection time: 2024-05-14 09:02:12
 
 2024-05-14 | [Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)](https://cn.bing.com/th?id=OHR.NamibiaCanyon_EN-US1337379319_UHD.jpg)
 
