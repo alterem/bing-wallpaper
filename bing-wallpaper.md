@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-14 20:27:07
+#### 🚀Latest collection time: 2024-05-15 00:18:51
 
 2024-05-15 | [Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)](https://cn.bing.com/th?id=OHR.CarlsbadNP_EN-US2282243740_UHD.jpg)
 
