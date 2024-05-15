@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-15 20:27:55
+#### 🚀Latest collection time: 2024-05-16 00:17:27
 
 2024-05-16 | [The Blue City of Jodhpur, India (© cinoby/Getty Images)](https://cn.bing.com/th?id=OHR.BlueCityIndia_EN-US1593809891_UHD.jpg)
 
