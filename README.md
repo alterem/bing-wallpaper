@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-16 16:14:38
+#### 🚀Latest collection time: 2024-05-16 20:27:02
 
 !['Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_UHD.jpg&w=960)
 Today: ['Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)](https://cn.bing.com/th?id=OHR.DayOfLight_EN-US1723401316_UHD.jpg)
