@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-17 20:25:33
+#### 🚀Latest collection time: 2024-05-18 00:16:54
 
 ![A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TarangireElephants_EN-US8865263185_UHD.jpg&w=960)
 Today: [A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TarangireElephants_EN-US8865263185_UHD.jpg)
