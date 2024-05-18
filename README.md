@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-18 16:15:55
+#### 🚀Latest collection time: 2024-05-18 20:24:46
 
 ![Blue whale skeleton in the Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)](https://cn.bing.com/th?id=OHR.MuseumWhale_EN-US2412212162_UHD.jpg&w=960)
 Today: [Blue whale skeleton in the Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)](https://cn.bing.com/th?id=OHR.MuseumWhale_EN-US2412212162_UHD.jpg)
