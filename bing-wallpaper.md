@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-18 12:15:58
+#### 🚀Latest collection time: 2024-05-18 16:15:55
+
+2024-05-19 | [Blue whale skeleton in the Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)](https://cn.bing.com/th?id=OHR.MuseumWhale_EN-US2412212162_UHD.jpg)
 
 2024-05-18 | [A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TarangireElephants_EN-US8865263185_UHD.jpg)
 
