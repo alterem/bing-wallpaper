@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-20 00:17:00
+#### 🚀Latest collection time: 2024-05-20 04:14:40
 
 2024-05-20 | [Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)](https://cn.bing.com/th?id=OHR.VernazzaItaly_EN-US2643430613_UHD.jpg)
 
