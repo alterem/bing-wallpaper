@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-21 00:18:13
+#### 🚀Latest collection time: 2024-05-21 04:14:24
 
 2024-05-21 | [Bee tending a honeycomb (© Simun Ascic/Alamy)](https://cn.bing.com/th?id=OHR.HoneycombBee_EN-US2941694554_UHD.jpg)
 
