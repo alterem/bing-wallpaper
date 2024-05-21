@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-21 20:26:36
+#### 🚀Latest collection time: 2024-05-22 00:17:11
 
 2024-05-22 | [Cameron Highlands tea plantation, Malaysia (© alex cheong/Getty Images)](https://cn.bing.com/th?id=OHR.MalaysiaTea_EN-US3322214623_UHD.jpg)
 
