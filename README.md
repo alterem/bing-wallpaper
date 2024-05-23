@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-23 09:02:15
+#### 🚀Latest collection time: 2024-05-23 12:16:31
 
 ![Tasmanian snow gum trees, Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)](https://cn.bing.com/th?id=OHR.SnowGumTasmania_EN-US4058572259_UHD.jpg&w=960)
 Today: [Tasmanian snow gum trees, Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)](https://cn.bing.com/th?id=OHR.SnowGumTasmania_EN-US4058572259_UHD.jpg)
