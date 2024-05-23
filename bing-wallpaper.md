@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-23 12:16:31
+#### 🚀Latest collection time: 2024-05-24 04:15:24
+
+2024-05-24 | [Indian star tortoise, Sri Lanka (© Robin Chittenden/Minden Pictures)](https://cn.bing.com/th?id=OHR.IndianStarTortoise_EN-US4160827746_UHD.jpg)
 
 2024-05-23 | [Tasmanian snow gum trees, Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)](https://cn.bing.com/th?id=OHR.SnowGumTasmania_EN-US4058572259_UHD.jpg)
 
