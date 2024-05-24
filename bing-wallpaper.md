@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-24 09:02:46
+#### 🚀Latest collection time: 2024-05-24 12:17:44
 
 2024-05-24 | [Indian star tortoise, Sri Lanka (© Robin Chittenden/Minden Pictures)](https://cn.bing.com/th?id=OHR.IndianStarTortoise_EN-US4160827746_UHD.jpg)
 
