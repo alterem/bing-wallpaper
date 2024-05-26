@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-26 12:16:05
+#### 🚀Latest collection time: 2024-05-26 16:17:17
+
+2024-05-27 | [Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.MethowWildflowers_EN-US4937353385_UHD.jpg)
 
 2024-05-26 | [Aït Benhaddou, Morocco (© Grant Faint/Getty Images)](https://cn.bing.com/th?id=OHR.MoroccoBenhaddou_EN-US4848616753_UHD.jpg)
 
