@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-27 16:18:29
+#### 🚀Latest collection time: 2024-05-27 20:27:00
 
 ![Field of flags set up for Memorial Day (© Andrew Seegmiller/Getty Images)](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_UHD.jpg&w=960)
 Today: [Field of flags set up for Memorial Day (© Andrew Seegmiller/Getty Images)](https://cn.bing.com/th?id=OHR.MemorialFlags_EN-US5086740860_UHD.jpg)
