@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-28 20:27:07
+#### 🚀Latest collection time: 2024-05-29 00:17:14
 
 2024-05-29 | [Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)](https://cn.bing.com/th?id=OHR.MeteoraMonastery_EN-US5286293282_UHD.jpg)
 
