@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-29 12:18:34
+#### 🚀Latest collection time: 2024-05-29 16:19:03
+
+2024-05-30 | [Eurasian otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)](https://cn.bing.com/th?id=OHR.MullOtter_EN-US5451978021_UHD.jpg)
 
 2024-05-29 | [Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)](https://cn.bing.com/th?id=OHR.MeteoraMonastery_EN-US5286293282_UHD.jpg)
 
