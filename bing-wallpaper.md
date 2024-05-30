@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-30 20:27:09
+#### 🚀Latest collection time: 2024-05-31 00:17:51
 
 2024-05-31 | [A stand of slash pines and sawgrass prairie, Everglades National Park, Florida (© Jonathan Gewirtz/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.Everglades90th_EN-US5663293086_UHD.jpg)
 
