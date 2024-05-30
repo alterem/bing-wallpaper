@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-30 09:03:38
+#### 🚀Latest collection time: 2024-05-30 12:19:48
 
 2024-05-30 | [Eurasian otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)](https://cn.bing.com/th?id=OHR.MullOtter_EN-US5451978021_UHD.jpg)
 
