@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-05-31 16:18:40
+#### 🚀Latest collection time: 2024-05-31 20:26:53
 
 ![Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy)](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_EN-US6104560581_UHD.jpg&w=960)
 Today: [Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy)](https://cn.bing.com/th?id=OHR.YorkshireDalesNP_EN-US6104560581_UHD.jpg)
