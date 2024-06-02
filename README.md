@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-02 20:24:49
+#### 🚀Latest collection time: 2024-06-03 00:16:51
 
 ![Flowers blooming in a garden, Alaska (© jet 67/Shutterstock)](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_UHD.jpg&w=960)
 Today: [Flowers blooming in a garden, Alaska (© jet 67/Shutterstock)](https://cn.bing.com/th?id=OHR.GardenWeek_EN-US6333815527_UHD.jpg)
