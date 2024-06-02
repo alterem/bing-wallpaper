@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-02 04:13:30
+#### 🚀Latest collection time: 2024-06-02 09:07:44
 
 2024-06-02 | [San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.PrideMonthSF_EN-US6251373281_UHD.jpg)
 
