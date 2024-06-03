@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-04 00:18:36
+#### 🚀Latest collection time: 2024-06-04 04:15:07
 
 ![Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_UHD.jpg&w=960)
 Today: [Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)](https://cn.bing.com/th?id=OHR.CopenhagenBicycles_EN-US6431027482_UHD.jpg)
