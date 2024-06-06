@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-06 12:17:12
+#### 🚀Latest collection time: 2024-06-06 16:18:16
+
+2024-06-07 | [Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)](https://cn.bing.com/th?id=OHR.LesBravesNormandy_EN-US6707866678_UHD.jpg)
 
 2024-06-06 | [Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg)
 
