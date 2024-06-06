@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-06 04:15:48
+#### 🚀Latest collection time: 2024-06-06 09:03:49
 
 ![Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg&w=960)
 Today: [Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)](https://cn.bing.com/th?id=OHR.MadagascarRiver_EN-US6642458773_UHD.jpg)
