@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-08 20:24:57
+#### 🚀Latest collection time: 2024-06-09 00:18:28
 
 ![Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_UHD.jpg&w=960)
 Today: [Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_UHD.jpg)
