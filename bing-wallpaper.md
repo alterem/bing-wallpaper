@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-09 12:17:11
+#### 🚀Latest collection time: 2024-06-09 16:16:48
+
+2024-06-10 | [Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BardenasBiosphere_EN-US6936891495_UHD.jpg)
 
 2024-06-09 | [Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)](https://cn.bing.com/th?id=OHR.KillikRiverAlaska_EN-US6860539516_UHD.jpg)
 
