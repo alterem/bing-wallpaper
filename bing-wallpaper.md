@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-10 16:19:30
+#### 🚀Latest collection time: 2024-06-10 20:28:21
 
 2024-06-11 | [Osaka at night, Japan (© wichianduangsri/Getty Images)](https://cn.bing.com/th?id=OHR.OsakaNight_EN-US7022302235_UHD.jpg)
 
