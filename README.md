@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-11 16:19:05
+#### 🚀Latest collection time: 2024-06-11 20:28:26
 
 ![Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_UHD.jpg&w=960)
 Today: [Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.GemsbokBotswana_EN-US7126985499_UHD.jpg)
