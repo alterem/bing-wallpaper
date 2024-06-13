@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-14 00:19:38
+#### 🚀Latest collection time: 2024-06-14 04:15:17
 
 ![Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_UHD.jpg&w=960)
 Today: [Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_UHD.jpg)
