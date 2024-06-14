@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-14 12:17:23
+#### 🚀Latest collection time: 2024-06-14 16:17:55
+
+2024-06-15 | [Flag display at the Washington Monument, Washington, DC  (© tristanbnz/Adobe Stock)](https://cn.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_UHD.jpg)
 
 2024-06-14 | [Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)](https://cn.bing.com/th?id=OHR.RegistanUzbekistan_EN-US7287760362_UHD.jpg)
 
