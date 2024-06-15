@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-15 12:18:19
+#### 🚀Latest collection time: 2024-06-15 16:17:23
+
+2024-06-16 | [Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)](https://cn.bing.com/th?id=OHR.NazareWave_EN-US9510827848_UHD.jpg)
 
 2024-06-15 | [Flag display at the Washington Monument, Washington, DC  (© tristanbnz/Adobe Stock)](https://cn.bing.com/th?id=OHR.FlagsDC_EN-US9363778856_UHD.jpg)
 
