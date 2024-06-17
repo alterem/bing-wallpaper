@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-17 09:07:10
+#### 🚀Latest collection time: 2024-06-17 12:18:24
 
 2024-06-17 | [Red fox father and kit, Washington (© Chase Dekker/Minden Pictures)](https://cn.bing.com/th?id=OHR.RedFoxDad_EN-US9773161483_UHD.jpg)
 
