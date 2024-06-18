@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-18 09:05:36
+#### 🚀Latest collection time: 2024-06-18 12:17:22
 
 2024-06-18 | [Green-crowned brilliant hummingbird with giant thistle, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)](https://cn.bing.com/th?id=OHR.HummingThistle_EN-US9897642087_UHD.jpg)
 
