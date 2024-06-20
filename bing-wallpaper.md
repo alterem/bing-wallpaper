@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-20 09:03:40
+#### 🚀Latest collection time: 2024-06-20 12:16:39
 
 2024-06-20 | [Jacob Lawrence's mosaic 'Community,' Joseph P. Addabbo Federal Building, Jamaica, Queens, New York (© Alpha Stock/Alamy)](https://cn.bing.com/th?id=OHR.LawrenceMosaic_EN-US0314379909_UHD.jpg)
 
