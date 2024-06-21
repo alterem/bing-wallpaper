@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-21 20:27:15
+#### 🚀Latest collection time: 2024-06-22 00:17:13
 
 ![Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_UHD.jpg&w=960)
 Today: [Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)](https://cn.bing.com/th?id=OHR.LewaGiraffe_EN-US0571205457_UHD.jpg)
