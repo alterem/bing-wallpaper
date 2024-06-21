@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-21 09:04:21
+#### 🚀Latest collection time: 2024-06-21 12:17:36
 
 ![Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_UHD.jpg&w=960)
 Today: [Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)](https://cn.bing.com/th?id=OHR.KokinoMacedonia_EN-US0466604378_UHD.jpg)
