@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-22 16:17:49
+#### 🚀Latest collection time: 2024-06-22 20:25:40
 
 2024-06-23 | [Amazon rainforest, Brazil (© Claus Meyer/plainpicture)](https://cn.bing.com/th?id=OHR.BrazilRainforest_EN-US0704211658_UHD.jpg)
 
