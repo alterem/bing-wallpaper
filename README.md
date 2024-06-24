@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-24 16:19:03
+#### 🚀Latest collection time: 2024-06-24 20:28:31
 
 ![Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_UHD.jpg&w=960)
 Today: [Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.FloresIsland_EN-US1042279828_UHD.jpg)
