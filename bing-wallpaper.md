@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-28 12:17:04
+#### 🚀Latest collection time: 2024-06-28 16:17:44
+
+2024-06-29 | [Pride flags at Christopher Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)](https://cn.bing.com/th?id=OHR.ChristopherPark_EN-US9362447266_UHD.jpg)
 
 2024-06-28 | [Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)](https://cn.bing.com/th?id=OHR.FlorenceDuomo_EN-US1448955167_UHD.jpg)
 
