@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-06-29 16:17:37
+#### 🚀Latest collection time: 2024-06-29 20:26:50
 
 ![Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.TourCorsica_EN-US3437831281_UHD.jpg&w=960)
 Today: [Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.TourCorsica_EN-US3437831281_UHD.jpg)
