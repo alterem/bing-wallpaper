@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-01 00:18:20
+#### 🚀Latest collection time: 2024-07-01 04:14:56
 
 ![Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)](https://cn.bing.com/th?id=OHR.UbudBali_EN-US3541248173_UHD.jpg&w=960)
 Today: [Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)](https://cn.bing.com/th?id=OHR.UbudBali_EN-US3541248173_UHD.jpg)
