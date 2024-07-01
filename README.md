@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-01 20:29:51
+#### 🚀Latest collection time: 2024-07-02 00:17:50
 
 ![Fisgard Lighthouse, Esquimalt Harbor, Colwood, British Columbia, Canada (© davemantel/Getty Images)](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_UHD.jpg&w=960)
 Today: [Fisgard Lighthouse, Esquimalt Harbor, Colwood, British Columbia, Canada (© davemantel/Getty Images)](https://cn.bing.com/th?id=OHR.FisgardLighthouse_EN-US3880792118_UHD.jpg)
