@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-03 12:17:17
+#### 🚀Latest collection time: 2024-07-03 16:18:56
+
+2024-07-04 | [Meerkat family (© anetapics/Shutterstock)](https://cn.bing.com/th?id=OHR.MeerkatManor_EN-US4231814766_UHD.jpg)
 
 2024-07-03 | [The Roman amphitheater of Italica, near Seville, Spain (© Moses Palermo/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.ItalicaRuins_EN-US4110786318_UHD.jpg)
 
