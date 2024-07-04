@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-04 16:19:05
+#### 🚀Latest collection time: 2024-07-04 20:27:56
 
 ![Fireworks over the Hudson River on the Fourth of July, New York (© New York on Air/Shutterstock)](https://cn.bing.com/th?id=OHR.HudsonFireworks_EN-US4304057228_UHD.jpg&w=960)
 Today: [Fireworks over the Hudson River on the Fourth of July, New York (© New York on Air/Shutterstock)](https://cn.bing.com/th?id=OHR.HudsonFireworks_EN-US4304057228_UHD.jpg)
