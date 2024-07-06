@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-06 12:17:36
+#### 🚀Latest collection time: 2024-07-06 16:18:37
+
+2024-07-07 | [Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy)](https://cn.bing.com/th?id=OHR.ConwyRiver_EN-US4472231451_UHD.jpg)
 
 2024-07-06 | [Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)](https://cn.bing.com/th?id=OHR.NoahBeach_EN-US4383778312_UHD.jpg)
 
