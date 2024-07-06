@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-07 00:16:48
+#### 🚀Latest collection time: 2024-07-07 04:14:44
 
 2024-07-07 | [Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy)](https://cn.bing.com/th?id=OHR.ConwyRiver_EN-US4472231451_UHD.jpg)
 
