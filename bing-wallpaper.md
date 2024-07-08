@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-08 12:18:53
+#### 🚀Latest collection time: 2024-07-08 16:18:58
+
+2024-07-09 | [Blueberries growing in the wild (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg)
 
 2024-07-08 | [Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)](https://cn.bing.com/th?id=OHR.YenBaiTerraces_EN-US4542290370_UHD.jpg)
 
