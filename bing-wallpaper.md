@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-09 04:16:51
+#### 🚀Latest collection time: 2024-07-09 09:06:50
 
 2024-07-09 | [Blueberries growing in the wild (© Baac3nes/Getty Images)](https://cn.bing.com/th?id=OHR.NorwayBlueberries_EN-US4598733420_UHD.jpg)
 
