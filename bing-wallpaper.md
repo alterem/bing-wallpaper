@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-10 12:19:02
+#### 🚀Latest collection time: 2024-07-10 16:19:57
+
+2024-07-11 | [Collared aracari, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://cn.bing.com/th?id=OHR.CollaredAracari_EN-US4924599176_UHD.jpg)
 
 2024-07-10 | [Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)](https://cn.bing.com/th?id=OHR.TalampayaNP_EN-US4761770918_UHD.jpg)
 
