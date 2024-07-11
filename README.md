@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-11 09:07:28
+#### 🚀Latest collection time: 2024-07-11 12:19:42
 
 ![Collared aracari, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://cn.bing.com/th?id=OHR.CollaredAracari_EN-US4924599176_UHD.jpg&w=960)
 Today: [Collared aracari, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://cn.bing.com/th?id=OHR.CollaredAracari_EN-US4924599176_UHD.jpg)
