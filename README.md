@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-12 04:15:17
+#### 🚀Latest collection time: 2024-07-12 09:06:05
 
 ![Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_UHD.jpg&w=960)
 Today: [Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.GangiSicily_EN-US5325083744_UHD.jpg)
