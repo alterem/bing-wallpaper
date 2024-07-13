@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-13 09:07:23
+#### 🚀Latest collection time: 2024-07-13 12:17:03
 
 ![Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_UHD.jpg&w=960)
 Today: [Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)](https://cn.bing.com/th?id=OHR.RainierWildflowers_EN-US8010104719_UHD.jpg)
