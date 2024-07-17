@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-18 00:18:35
+#### 🚀Latest collection time: 2024-07-18 04:15:51
 
 ![Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg&w=960)
 Today: [Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)](https://cn.bing.com/th?id=OHR.MedievalRothenburg_EN-US8575765997_UHD.jpg)
