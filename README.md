@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-19 04:15:48
+#### 🚀Latest collection time: 2024-07-19 09:35:03
 
 ![Coral reef in the Indian Ocean, overseas department of Mayotte, France (© Gabriel Barathieu/Minden Pictures)](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_UHD.jpg&w=960)
 Today: [Coral reef in the Indian Ocean, overseas department of Mayotte, France (© Gabriel Barathieu/Minden Pictures)](https://cn.bing.com/th?id=OHR.MayotteCoral_EN-US4102346691_UHD.jpg)
