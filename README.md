@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-19 20:27:59
+#### 🚀Latest collection time: 2024-07-20 00:18:07
 
 ![A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_UHD.jpg&w=960)
 Today: [A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_UHD.jpg)
