@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-20 20:26:23
+#### 🚀Latest collection time: 2024-07-21 00:18:08
 
 2024-07-21 | [The moon (© Victor Blum/Getty Images)](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_UHD.jpg)
 
