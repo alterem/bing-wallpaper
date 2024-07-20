@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-20 12:19:03
+#### 🚀Latest collection time: 2024-07-20 16:17:13
+
+2024-07-21 | [The moon (© Victor Blum/Getty Images)](https://cn.bing.com/th?id=OHR.MineralMoon_EN-US8936600169_UHD.jpg)
 
 2024-07-20 | [A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)](https://cn.bing.com/th?id=OHR.YoungJaguar_EN-US8866928893_UHD.jpg)
 
