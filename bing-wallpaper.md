@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-24 12:17:10
+#### 🚀Latest collection time: 2024-07-24 16:18:20
+
+2024-07-25 | [Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)](https://cn.bing.com/th?id=OHR.SheepCousins_EN-US9566915151_UHD.jpg)
 
 2024-07-24 | [Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)](https://cn.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_UHD.jpg)
 
