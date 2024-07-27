@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-27 12:18:08
+#### 🚀Latest collection time: 2024-07-27 16:16:52
+
+2024-07-28 | [Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)](https://cn.bing.com/th?id=OHR.RhinelandVineyards_EN-US5864380431_UHD.jpg)
 
 2024-07-27 | [Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.PontNeuf_EN-US5735328254_UHD.jpg)
 
