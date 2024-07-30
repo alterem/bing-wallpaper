@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-30 20:28:53
+#### 🚀Latest collection time: 2024-07-31 00:19:32
 
 ![San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_UHD.jpg&w=960)
 Today: [San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_UHD.jpg)
