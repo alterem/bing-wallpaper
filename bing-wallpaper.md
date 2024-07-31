@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-07-31 12:14:42
+#### 🚀Latest collection time: 2024-07-31 16:17:50
+
+2024-08-01 | [Hoodoos, Sunset Point, Bryce Canyon National Park, Utah (© Tim Fitzharris/Minden Pictures)](https://cn.bing.com/th?id=OHR.HoodoosBryce_EN-US6434628044_UHD.jpg)
 
 2024-07-31 | [San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)](https://cn.bing.com/th?id=OHR.GimignanoTuscany_EN-US6339668180_UHD.jpg)
 
