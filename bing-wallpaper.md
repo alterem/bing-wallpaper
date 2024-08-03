@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-03 12:17:24
+#### 🚀Latest collection time: 2024-08-03 16:18:42
+
+2024-08-04 | [Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_UHD.jpg)
 
 2024-08-03 | [Trunk Bay, St. John, Virgin Islands National Park (© cdwheatley/Getty Images)](https://cn.bing.com/th?id=OHR.TrunkBay_EN-US6585719799_UHD.jpg)
 
