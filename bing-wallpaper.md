@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-04 12:18:41
+#### 🚀Latest collection time: 2024-08-04 16:17:04
+
+2024-08-05 | [Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)](https://cn.bing.com/th?id=OHR.ImpalaOxpecker_EN-US6835989068_UHD.jpg)
 
 2024-08-04 | [Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)](https://cn.bing.com/th?id=OHR.WulongKarst_EN-US6752358338_UHD.jpg)
 
