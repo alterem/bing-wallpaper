@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-06 20:29:18
+#### 🚀Latest collection time: 2024-08-07 00:18:39
 
 ![Molokini Crater, Maui, Hawaii (© Douglas Peebles/eStock Photo)](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_UHD.jpg&w=960)
 Today: [Molokini Crater, Maui, Hawaii (© Douglas Peebles/eStock Photo)](https://cn.bing.com/th?id=OHR.MolokiniHawaii_EN-US7128254175_UHD.jpg)
