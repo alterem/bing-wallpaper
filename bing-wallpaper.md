@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-06 04:15:34
+#### 🚀Latest collection time: 2024-08-06 09:07:57
 
 2024-08-06 | [Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)](https://cn.bing.com/th?id=OHR.HertfordshireLavender_EN-US6911884438_UHD.jpg)
 
