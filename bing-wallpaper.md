@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-09 04:16:39
+#### 🚀Latest collection time: 2024-08-09 09:09:30
 
 2024-08-09 | [Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)](https://cn.bing.com/th?id=OHR.SpottedOwlet_EN-US7339417169_UHD.jpg)
 
