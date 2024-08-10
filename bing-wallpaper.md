@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-10 20:27:28
+#### 🚀Latest collection time: 2024-08-11 00:18:23
 
 2024-08-11 | [Joshua Tree National Park, California (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.JoshuaTreeNP_EN-US1399159741_UHD.jpg)
 
