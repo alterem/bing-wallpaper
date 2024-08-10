@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-10 04:16:26
+#### 🚀Latest collection time: 2024-08-10 09:09:14
 
 2024-08-10 | [Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)](https://cn.bing.com/th?id=OHR.IncaRuinPeru_EN-US1209778539_UHD.jpg)
 
