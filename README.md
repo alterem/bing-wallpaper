@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-13 00:19:00
+#### 🚀Latest collection time: 2024-08-13 04:15:53
 
 ![African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_UHD.jpg&w=960)
 Today: [African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)](https://cn.bing.com/th?id=OHR.ElephantsAmboseli_EN-US1913542949_UHD.jpg)
