@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-15 12:17:44
+#### 🚀Latest collection time: 2024-08-15 16:19:14
+
+2024-08-16 | [Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_UHD.jpg)
 
 2024-08-15 | [Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://cn.bing.com/th?id=OHR.WatarrkaLizard_EN-US2106702347_UHD.jpg)
 
