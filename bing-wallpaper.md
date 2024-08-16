@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-16 04:16:02
+#### 🚀Latest collection time: 2024-08-16 09:08:31
 
 2024-08-16 | [Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_UHD.jpg)
 
