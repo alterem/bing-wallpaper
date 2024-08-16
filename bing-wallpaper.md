@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-16 12:17:54
+#### 🚀Latest collection time: 2024-08-16 16:19:46
+
+2024-08-17 | [Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)](https://cn.bing.com/th?id=OHR.JapanRollerCoaster_EN-US9463845683_UHD.jpg)
 
 2024-08-16 | [Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)](https://cn.bing.com/th?id=OHR.HangCave_EN-US9374263509_UHD.jpg)
 
