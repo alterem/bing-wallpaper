@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-18 09:13:02
+#### 🚀Latest collection time: 2024-08-18 12:19:27
 
 ![Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_UHD.jpg&w=960)
 Today: [Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://cn.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-US9545750672_UHD.jpg)
