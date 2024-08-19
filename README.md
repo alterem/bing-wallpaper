@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-20 00:18:39
+#### 🚀Latest collection time: 2024-08-20 04:15:52
 
 ![Museum of Flight, Seattle, Washington (© George Rose/Getty Images)](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_UHD.jpg&w=960)
 Today: [Museum of Flight, Seattle, Washington (© George Rose/Getty Images)](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_UHD.jpg)
