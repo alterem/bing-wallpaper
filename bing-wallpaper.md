@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-20 12:20:00
+#### 🚀Latest collection time: 2024-08-20 16:19:54
+
+2024-08-21 | [Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.TetonSunrise_EN-US0849252457_UHD.jpg)
 
 2024-08-20 | [Museum of Flight, Seattle, Washington (© George Rose/Getty Images)](https://cn.bing.com/th?id=OHR.FlightMuseum_EN-US0151236175_UHD.jpg)
 
