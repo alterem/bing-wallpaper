@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-23 04:16:37
+#### 🚀Latest collection time: 2024-08-23 09:09:10
 
 ![Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_UHD.jpg&w=960)
 Today: [Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.OceanCityMD_EN-US1389904046_UHD.jpg)
