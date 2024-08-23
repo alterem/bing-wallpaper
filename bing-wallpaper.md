@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-23 16:19:56
+#### 🚀Latest collection time: 2024-08-23 20:29:23
 
 2024-08-24 | [Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)](https://cn.bing.com/th?id=OHR.PrasatPhanom_EN-US7990643175_UHD.jpg)
 
