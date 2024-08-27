@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-28 00:18:56
+#### 🚀Latest collection time: 2024-08-28 04:17:05
 
 2024-08-28 | [Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)](https://cn.bing.com/th?id=OHR.YoungCaiman_EN-US8572688559_UHD.jpg)
 
