@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-30 00:20:12
+#### 🚀Latest collection time: 2024-08-30 04:16:24
 
 ![Castellfollit de la Roca, Catalonia, Spain (© Eloi_Omella/Getty Images)](https://cn.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_UHD.jpg&w=960)
 Today: [Castellfollit de la Roca, Catalonia, Spain (© Eloi_Omella/Getty Images)](https://cn.bing.com/th?id=OHR.CastellfollitSpain_EN-US8880313790_UHD.jpg)
