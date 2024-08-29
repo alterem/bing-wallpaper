@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-29 09:11:42
+#### 🚀Latest collection time: 2024-08-29 12:18:42
 
 2024-08-29 | [Montmartre and Sacre Cœur, Paris, France (© Tuul & Bruno Morandi/Getty Images)](https://cn.bing.com/th?id=OHR.ParalympicsParis_EN-US0355511969_UHD.jpg)
 
