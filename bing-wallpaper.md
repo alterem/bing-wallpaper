@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-08-31 12:19:31
+#### 🚀Latest collection time: 2024-08-31 16:19:34
+
+2024-09-01 | [Rock formations and sand dunes in the Sahara, Tassili n’Ajjer, Algeria (© Airpano/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-US9175224323_UHD.jpg)
 
 2024-08-31 | [A whale shark in Cenderawasih Bay, West Papua, Indonesia (© Andy Lerner/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.WhaleSharkDay_EN-US8979838463_UHD.jpg)
 
