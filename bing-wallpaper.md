@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-02 12:19:20
+#### 🚀Latest collection time: 2024-09-02 16:20:49
+
+2024-09-03 | ['Power of the Titans' mural by Andrei Krautsou, North Kansas City, Missouri (© Stephen Taylor/Alamy)](https://cn.bing.com/th?id=OHR.KansasMural_EN-US9504361321_UHD.jpg)
 
 2024-09-02 | [River Thames, London, England (© Puthipong Worasaran/Getty Images)](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg)
 
