@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-02 04:16:42
+#### 🚀Latest collection time: 2024-09-02 09:13:19
 
 ![River Thames, London, England (© Puthipong Worasaran/Getty Images)](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg&w=960)
 Today: [River Thames, London, England (© Puthipong Worasaran/Getty Images)](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-US9385705885_UHD.jpg)
