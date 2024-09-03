@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-03 16:20:13
+#### 🚀Latest collection time: 2024-09-03 20:31:02
 
 ![Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg&w=960)
 Today: [Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.AlpineLakes_EN-US9676616320_UHD.jpg)
