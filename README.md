@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-05 04:17:09
+#### 🚀Latest collection time: 2024-09-05 09:12:13
 
 ![Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_UHD.jpg&w=960)
 Today: [Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)](https://cn.bing.com/th?id=OHR.DuskyOwls_EN-US9845705930_UHD.jpg)
