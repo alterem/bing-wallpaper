@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-06 12:18:31
+#### 🚀Latest collection time: 2024-09-06 16:20:15
+
+2024-09-07 | [Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.GlenariffPark_EN-US3914128007_UHD.jpg)
 
 2024-09-06 | [Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)](https://cn.bing.com/th?id=OHR.TIFF2024_EN-US9586964456_UHD.jpg)
 
