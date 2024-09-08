@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-08 09:17:49
+#### 🚀Latest collection time: 2024-09-08 12:18:20
 
 ![Anna's hummingbird, Santa Cruz, California (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_UHD.jpg&w=960)
 Today: [Anna's hummingbird, Santa Cruz, California (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-US4047958707_UHD.jpg)
