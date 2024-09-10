@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-10 12:18:49
+#### 🚀Latest collection time: 2024-09-10 16:20:32
+
+2024-09-11 | [Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)](https://cn.bing.com/th?id=OHR.BridgeLisbon_EN-US4458392664_UHD.jpg)
 
 2024-09-10 | [Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.IguazuRainbow_EN-US4361499337_UHD.jpg)
 
