@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-11 12:21:10
+#### 🚀Latest collection time: 2024-09-11 16:20:47
+
+2024-09-12 | [National September 11 Memorial & Museum, New York City (© Antonino Bartuccio/Sime/eStock Photo)](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_UHD.jpg)
 
 2024-09-11 | [Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)](https://cn.bing.com/th?id=OHR.BridgeLisbon_EN-US4458392664_UHD.jpg)
 
