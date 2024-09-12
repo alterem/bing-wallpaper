@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-12 09:12:37
+#### 🚀Latest collection time: 2024-09-12 12:20:05
 
 ![National September 11 Memorial & Museum, New York City (© Antonino Bartuccio/Sime/eStock Photo)](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_UHD.jpg&w=960)
 Today: [National September 11 Memorial & Museum, New York City (© Antonino Bartuccio/Sime/eStock Photo)](https://cn.bing.com/th?id=OHR.ManhattanMemorial_EN-US4528393468_UHD.jpg)
