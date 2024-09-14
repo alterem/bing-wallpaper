@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-14 12:19:00
+#### 🚀Latest collection time: 2024-09-14 16:20:33
+
+2024-09-15 | [Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg)
 
 2024-09-14 | [Lighthouse at Point Reyes National Seashore, California (© RMB Images/Photography by Robert Bowman/Getty Images)](https://cn.bing.com/th?id=OHR.PointReyes_EN-US4731803211_UHD.jpg)
 
