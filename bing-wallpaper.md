@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-15 12:19:20
+#### 🚀Latest collection time: 2024-09-15 16:20:00
+
+2024-09-16 | [Casa del Prado, Balboa Park, San Diego, California (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_UHD.jpg)
 
 2024-09-15 | [Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)](https://cn.bing.com/th?id=OHR.RapaNuiSunrise_EN-US4872610843_UHD.jpg)
 
