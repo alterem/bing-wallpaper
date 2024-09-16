@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-16 04:16:15
+#### 🚀Latest collection time: 2024-09-16 09:17:20
 
 ![Casa del Prado, Balboa Park, San Diego, California (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_UHD.jpg&w=960)
 Today: [Casa del Prado, Balboa Park, San Diego, California (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.BalboaPark_EN-US5050015037_UHD.jpg)
