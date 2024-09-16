@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-16 20:33:05
+#### 🚀Latest collection time: 2024-09-17 00:20:11
 
 ![Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_UHD.jpg&w=960)
 Today: [Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-US5210230008_UHD.jpg)
