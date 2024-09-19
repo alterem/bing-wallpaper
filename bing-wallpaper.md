@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-19 04:17:04
+#### 🚀Latest collection time: 2024-09-19 09:14:29
 
 2024-09-19 | [Gujō Hachiman Castle, Gifu prefecture, Japan (© ta2funk ito/500px/Getty Images)](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-US5502837623_UHD.jpg)
 
