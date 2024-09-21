@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-21 12:18:45
+#### 🚀Latest collection time: 2024-09-21 16:18:52
+
+2024-09-22 | [Oktoberfest in Munich, Germany, at sunset (© AllesSuper21/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_UHD.jpg)
 
 2024-09-21 | [Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-US3638306974_UHD.jpg)
 
