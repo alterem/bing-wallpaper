@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-22 12:21:32
+#### 🚀Latest collection time: 2024-09-22 16:18:48
+
+2024-09-23 | [Buttermere, Lake District National Park, England (© Alan Novelli/Alamy)](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_UHD.jpg)
 
 2024-09-22 | [Oktoberfest in Munich, Germany, at sunset (© AllesSuper21/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.MunichBeerfest_EN-US3708656793_UHD.jpg)
 
