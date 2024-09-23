@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-23 09:16:09
+#### 🚀Latest collection time: 2024-09-23 12:19:33
 
 ![Buttermere, Lake District National Park, England (© Alan Novelli/Alamy)](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_UHD.jpg&w=960)
 Today: [Buttermere, Lake District National Park, England (© Alan Novelli/Alamy)](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_UHD.jpg)
