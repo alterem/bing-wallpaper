@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-23 12:19:33
+#### 🚀Latest collection time: 2024-09-23 16:21:24
+
+2024-09-24 | [Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.IcebergOtter_EN-US3869054406_UHD.jpg)
 
 2024-09-23 | [Buttermere, Lake District National Park, England (© Alan Novelli/Alamy)](https://cn.bing.com/th?id=OHR.AutumnCumbria_EN-US3797009731_UHD.jpg)
 
