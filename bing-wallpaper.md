@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-09-24 12:20:11
+#### 🚀Latest collection time: 2024-09-24 16:21:59
+
+2024-09-25 | [Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)](https://cn.bing.com/th?id=OHR.SkaftafellWaterfall_EN-US3934499773_UHD.jpg)
 
 2024-09-24 | [Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)](https://cn.bing.com/th?id=OHR.IcebergOtter_EN-US3869054406_UHD.jpg)
 
