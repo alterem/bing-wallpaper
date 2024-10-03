@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-03 12:20:10
+#### 🚀Latest collection time: 2024-10-03 16:21:18
+
+2024-10-04 | [Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)](https://cn.bing.com/th?id=OHR.TajMahalReflection_EN-US5053333041_UHD.jpg)
 
 2024-10-03 | [Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska (© Design Pics/Danita Delimont)](https://cn.bing.com/th?id=OHR.WindRiverAlaska_EN-US4993335597_UHD.jpg)
 
