@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-06 16:19:30
+#### 🚀Latest collection time: 2024-10-06 20:29:51
 
 ![Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)](https://cn.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_UHD.jpg&w=960)
 Today: [Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)](https://cn.bing.com/th?id=OHR.SoranoItaly_EN-US2208208147_UHD.jpg)
