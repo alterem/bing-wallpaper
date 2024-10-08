@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-08 12:20:00
+#### 🚀Latest collection time: 2024-10-08 16:21:44
+
+2024-10-09 | [Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)](https://cn.bing.com/th?id=OHR.MototiOctopus_EN-US8820270832_UHD.jpg)
 
 2024-10-08 | [The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)](https://cn.bing.com/th?id=OHR.ElbePhilharmonic_EN-US8658450086_UHD.jpg)
 
