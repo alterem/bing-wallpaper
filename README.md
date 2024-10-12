@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-12 16:19:41
+#### 🚀Latest collection time: 2024-10-12 20:16:50
 
 ![Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg&w=960)
 Today: [Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg)
