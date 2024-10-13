@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-13 08:19:45
+#### 🚀Latest collection time: 2024-10-13 12:30:11
 
 ![Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)](https://cn.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_UHD.jpg&w=960)
 Today: [Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)](https://cn.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_UHD.jpg)
