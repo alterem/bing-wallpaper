@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-13 04:19:17
+#### 🚀Latest collection time: 2024-10-13 08:19:45
+
+2024-10-14 | [Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)](https://cn.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_UHD.jpg)
 
 2024-10-13 | [Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)](https://cn.bing.com/th?id=OHR.QuebecDuck_EN-US9387855720_UHD.jpg)
 
