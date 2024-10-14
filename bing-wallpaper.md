@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-14 04:20:09
+#### 🚀Latest collection time: 2024-10-14 08:22:20
+
+2024-10-15 | [Ancestral Pueblo granaries at Nankoweap, Grand Canyon National Park, Arizona (© Andrew Peacock/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_UHD.jpg)
 
 2024-10-14 | [Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)](https://cn.bing.com/th?id=OHR.AlcazarSeville_EN-US9523655289_UHD.jpg)
 
