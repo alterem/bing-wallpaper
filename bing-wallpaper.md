@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-15 04:20:07
+#### 🚀Latest collection time: 2024-10-15 08:22:01
+
+2024-10-16 | [Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)](https://cn.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_UHD.jpg)
 
 2024-10-15 | [Ancestral Pueblo granaries at Nankoweap, Grand Canyon National Park, Arizona (© Andrew Peacock/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.PuebloNankoweap_EN-US9631367700_UHD.jpg)
 
