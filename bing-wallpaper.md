@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-16 04:20:04
+#### 🚀Latest collection time: 2024-10-16 08:21:54
+
+2024-10-17 | [Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_UHD.jpg)
 
 2024-10-16 | [Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)](https://cn.bing.com/th?id=OHR.MaraMigration_EN-US9704012409_UHD.jpg)
 
