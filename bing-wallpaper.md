@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-17 12:19:49
+#### 🚀Latest collection time: 2024-10-17 16:21:39
+
+2024-10-18 | [Frost-covered dunes on the surface of Mars (© NASA/JPL-Caltech/UArizona)](https://cn.bing.com/th?id=OHR.MarsDunes_EN-US3465209450_UHD.jpg)
 
 2024-10-17 | [Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.FossilsDorset_EN-US9782204825_UHD.jpg)
 
