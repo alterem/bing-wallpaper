@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-18 16:21:31
+#### 🚀Latest collection time: 2024-10-18 20:32:34
 
 ![Autumn in Central Park, Manhattan, New York (© mapman/Shutterstock)](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg&w=960)
 Today: [Autumn in Central Park, Manhattan, New York (© mapman/Shutterstock)](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg)
