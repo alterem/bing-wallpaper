@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-19 12:19:24
+#### 🚀Latest collection time: 2024-10-19 16:20:02
+
+2024-10-20 | [Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.DenderaTemple_EN-US2605709637_UHD.jpg)
 
 2024-10-19 | [Autumn in Central Park, Manhattan, New York (© mapman/Shutterstock)](https://cn.bing.com/th?id=OHR.CentralParkAutumn_EN-US2354288950_UHD.jpg)
 
