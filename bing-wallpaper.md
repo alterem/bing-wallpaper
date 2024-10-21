@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-21 12:20:29
+#### 🚀Latest collection time: 2024-10-21 16:22:28
+
+2024-10-22 | [Cypress trees in George L. Smith State Park, Georgia (© Chris Moore/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.AutumnCypress_EN-US2771131028_UHD.jpg)
 
 2024-10-21 | [Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)](https://cn.bing.com/th?id=OHR.SmilingSloth_EN-US2707836219_UHD.jpg)
 
