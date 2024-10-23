@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-24 00:20:59
+#### 🚀Latest collection time: 2024-10-24 04:19:18
 
 ![Madame Sherri Forest and the ruins of an old castle, New Hampshire (© yggdrasill/Shutterstock)](https://cn.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_UHD.jpg&w=960)
 Today: [Madame Sherri Forest and the ruins of an old castle, New Hampshire (© yggdrasill/Shutterstock)](https://cn.bing.com/th?id=OHR.MadameSherriCastle_EN-US3066456106_UHD.jpg)
