@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-29 12:20:35
+#### 🚀Latest collection time: 2024-10-29 16:21:52
+
+2024-10-30 | [Great horned owl (© Mark Newman/Getty Images)](https://cn.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_UHD.jpg)
 
 2024-10-29 | [Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy)](https://cn.bing.com/th?id=OHR.PumpkinMist_EN-US3686565863_UHD.jpg)
 
