@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-30 09:17:25
+#### 🚀Latest collection time: 2024-10-30 12:20:19
 
 ![Great horned owl (© Mark Newman/Getty Images)](https://cn.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_UHD.jpg&w=960)
 Today: [Great horned owl (© Mark Newman/Getty Images)](https://cn.bing.com/th?id=OHR.GreatOwl_EN-US3778222109_UHD.jpg)
