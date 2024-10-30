@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-10-30 20:33:31
+#### 🚀Latest collection time: 2024-10-31 00:21:27
 
 ![View of Edinburgh Castle from a churchyard in Scotland (© Chris Dorney/Alamy)](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_EN-US3906244993_UHD.jpg&w=960)
 Today: [View of Edinburgh Castle from a churchyard in Scotland (© Chris Dorney/Alamy)](https://cn.bing.com/th?id=OHR.HauntedEdinburgh_EN-US3906244993_UHD.jpg)
