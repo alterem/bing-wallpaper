@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-04 09:18:38
+#### 🚀Latest collection time: 2024-11-04 12:20:18
 
 ![Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_UHD.jpg&w=960)
 Today: [Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)](https://cn.bing.com/th?id=OHR.YucatanBiosphere_EN-US4019968428_UHD.jpg)
