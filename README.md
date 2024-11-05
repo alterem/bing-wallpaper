@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-05 20:31:14
+#### 🚀Latest collection time: 2024-11-06 00:21:18
 
 ![Autumn sunrise over the National Mall, Washington, DC (© WLDavies/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_UHD.jpg&w=960)
 Today: [Autumn sunrise over the National Mall, Washington, DC (© WLDavies/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.DCSunrise_EN-US2459275186_UHD.jpg)
