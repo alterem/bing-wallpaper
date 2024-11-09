@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-09 09:13:35
+#### 🚀Latest collection time: 2024-11-09 12:18:43
 
 ![Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_UHD.jpg&w=960)
 Today: [Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-US4356459123_UHD.jpg)
