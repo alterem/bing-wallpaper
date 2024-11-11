@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-11 12:19:50
+#### 🚀Latest collection time: 2024-11-11 16:21:52
+
+2024-11-12 | [Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg)
 
 2024-11-11 | [Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-US4470232432_UHD.jpg)
 
