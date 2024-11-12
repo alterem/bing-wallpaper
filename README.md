@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-12 09:14:46
+#### 🚀Latest collection time: 2024-11-12 12:19:27
 
 ![Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg&w=960)
 Today: [Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)](https://cn.bing.com/th?id=OHR.VeteranReflections_EN-US4567357121_UHD.jpg)
