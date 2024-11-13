@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-13 20:33:00
+#### 🚀Latest collection time: 2024-11-14 00:20:36
 
 ![California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_UHD.jpg&w=960)
 Today: [California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)](https://cn.bing.com/th?id=OHR.KelpForest_EN-US4745308334_UHD.jpg)
