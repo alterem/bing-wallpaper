@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-15 12:21:14
+#### 🚀Latest collection time: 2024-11-15 16:21:55
+
+2024-11-16 | [Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)](https://cn.bing.com/th?id=OHR.YiPengLanterns_EN-US2889801198_UHD.jpg)
 
 2024-11-15 | [Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)](https://cn.bing.com/th?id=OHR.ManarolaItaly_EN-US4826543395_UHD.jpg)
 
