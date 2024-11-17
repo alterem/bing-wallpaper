@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-17 09:24:40
+#### 🚀Latest collection time: 2024-11-17 12:20:00
 
 ![Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_UHD.jpg&w=960)
 Today: [Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)](https://cn.bing.com/th?id=OHR.FrieslandNetherlands_EN-US3770890281_UHD.jpg)
