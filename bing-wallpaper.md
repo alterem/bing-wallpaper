@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-18 12:21:06
+#### 🚀Latest collection time: 2024-11-18 16:23:43
+
+2024-11-19 | [Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_UHD.jpg)
 
 2024-11-18 | [Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)](https://cn.bing.com/th?id=OHR.RedStag_EN-US3910525623_UHD.jpg)
 
