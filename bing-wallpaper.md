@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-19 12:20:36
+#### 🚀Latest collection time: 2024-11-19 16:22:40
+
+2024-11-20 | [Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_UHD.jpg)
 
 2024-11-19 | [Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-US4147042402_UHD.jpg)
 
