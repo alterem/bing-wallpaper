@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-20 04:18:53
+#### 🚀Latest collection time: 2024-11-20 09:19:56
 
 ![Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_UHD.jpg&w=960)
 Today: [Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)](https://cn.bing.com/th?id=OHR.TasmansArch_EN-US4274981499_UHD.jpg)
