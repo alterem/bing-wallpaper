@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-22 04:19:12
+#### 🚀Latest collection time: 2024-11-22 09:21:03
 
 ![Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_UHD.jpg&w=960)
 Today: [Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)](https://cn.bing.com/th?id=OHR.LionCubs_EN-US4742616367_UHD.jpg)
