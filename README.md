@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-23 04:18:42
+#### 🚀Latest collection time: 2024-11-23 09:18:31
 
 ![Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)](https://cn.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_UHD.jpg&w=960)
 Today: [Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)](https://cn.bing.com/th?id=OHR.ZafraCastle_EN-US5032917939_UHD.jpg)
