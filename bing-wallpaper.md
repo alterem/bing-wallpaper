@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-24 12:20:57
+#### 🚀Latest collection time: 2024-11-24 16:20:08
+
+2024-11-25 | [Sonoma Coast State Park, California (© Rachid Dahnoun/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SonomaCoast_EN-US5218026576_UHD.jpg)
 
 2024-11-24 | [Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)](https://cn.bing.com/th?id=OHR.FibonacciAloe_EN-US5137471725_UHD.jpg)
 
