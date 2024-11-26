@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-26 12:21:12
+#### 🚀Latest collection time: 2024-11-26 16:23:17
+
+2024-11-27 | [Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)](https://cn.bing.com/th?id=OHR.TrulliGrove_EN-US5919292259_UHD.jpg)
 
 2024-11-26 | [Masai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-US9072366924_UHD.jpg)
 
