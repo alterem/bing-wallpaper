@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-28 04:19:21
+#### 🚀Latest collection time: 2024-11-28 09:22:01
 
 2024-11-28 | [Tombeau du Géant (Giant's Tomb) in autumn, Bouillon, Belgium (© David Briard/Getty)](https://cn.bing.com/th?id=OHR.SemoisRiver_EN-US6047540380_UHD.jpg)
 
