@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-11-29 16:22:57
+#### 🚀Latest collection time: 2024-11-29 20:35:02
 
 ![Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_UHD.jpg&w=960)
 Today: [Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)](https://cn.bing.com/th?id=OHR.MtStMichel_EN-US6641012356_UHD.jpg)
