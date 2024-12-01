@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-01 20:33:00
+#### 🚀Latest collection time: 2024-12-02 00:20:18
 
 2024-12-02 | [Icebergs, Antarctica (© Art Wolfe/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.IcebergsAntarctica_EN-US6829804691_UHD.jpg)
 
