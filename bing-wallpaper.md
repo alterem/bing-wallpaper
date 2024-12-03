@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-03 16:23:17
+#### 🚀Latest collection time: 2024-12-03 20:35:33
 
 2024-12-04 | [Sattais Katcheri (Court of 27 Pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)](https://cn.bing.com/th?id=OHR.JaipurFort_EN-US7275752190_UHD.jpg)
 
