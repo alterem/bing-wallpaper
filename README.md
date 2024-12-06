@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-06 09:22:50
+#### 🚀Latest collection time: 2024-12-06 12:21:37
 
 ![Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_UHD.jpg&w=960)
 Today: [Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.MonoTufa_EN-US7607210506_UHD.jpg)
