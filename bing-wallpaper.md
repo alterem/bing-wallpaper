@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-10 08:24:10
+#### 🚀Latest collection time: 2024-12-10 12:36:39
 
 2024-12-11 | [The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_UHD.jpg)
 
