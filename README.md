@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-09 20:20:21
+#### 🚀Latest collection time: 2024-12-10 01:24:50
 
 ![Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_UHD.jpg&w=960)
 Today: [Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.GuanacosChile_EN-US8209106662_UHD.jpg)
