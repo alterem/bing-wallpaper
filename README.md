@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-11 16:23:13
+#### 🚀Latest collection time: 2024-12-11 20:20:04
 
 ![Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_UHD.jpg&w=960)
 Today: [Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_UHD.jpg)
