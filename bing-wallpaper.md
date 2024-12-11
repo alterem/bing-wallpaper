@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-11 04:21:41
+#### 🚀Latest collection time: 2024-12-11 08:24:21
+
+2024-12-12 | [Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)](https://cn.bing.com/th?id=OHR.DolomitesSky_EN-US8624061239_UHD.jpg)
 
 2024-12-11 | [The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)](https://cn.bing.com/th?id=OHR.CornwallSnow_EN-US8476437458_UHD.jpg)
 
