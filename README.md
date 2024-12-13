@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-13 01:24:34
+#### 🚀Latest collection time: 2024-12-13 04:21:31
 
 ![Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_UHD.jpg&w=960)
 Today: [Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-US8728271702_UHD.jpg)
