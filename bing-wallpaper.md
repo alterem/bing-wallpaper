@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-14 04:20:51
+#### 🚀Latest collection time: 2024-12-14 08:20:34
+
+2024-12-15 | [Northern hawk-owl, Canada (© pchoui/Getty Images)](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_UHD.jpg)
 
 2024-12-14 | [Christmas market, St. Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-US0865695821_UHD.jpg)
 
