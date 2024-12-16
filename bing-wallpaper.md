@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-15 20:18:10
+#### 🚀Latest collection time: 2024-12-16 01:26:12
 
 2024-12-16 | [Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_UHD.jpg)
 
