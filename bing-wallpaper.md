@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-16 08:25:08
+#### 🚀Latest collection time: 2024-12-16 12:37:15
 
 2024-12-17 | [Salzburg, Austria (© bluejayphoto/Getty Images)](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg)
 
