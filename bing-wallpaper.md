@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-17 04:21:50
+#### 🚀Latest collection time: 2024-12-17 08:24:03
+
+2024-12-18 | [Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_UHD.jpg)
 
 2024-12-17 | [Salzburg, Austria (© bluejayphoto/Getty Images)](https://cn.bing.com/th?id=OHR.SalzburgSnow_EN-US8262729220_UHD.jpg)
 
