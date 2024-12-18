@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-18 04:20:33
+#### 🚀Latest collection time: 2024-12-18 08:23:20
+
+2024-12-19 | [English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy)](https://cn.bing.com/th?id=OHR.NutcrackerBallet_EN-US8927830113_UHD.jpg)
 
 2024-12-18 | [Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_UHD.jpg)
 
