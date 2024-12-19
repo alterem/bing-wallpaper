@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-18 20:19:12
+#### 🚀Latest collection time: 2024-12-19 01:21:07
 
 ![English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy)](https://cn.bing.com/th?id=OHR.NutcrackerBallet_EN-US8927830113_UHD.jpg&w=960)
 Today: [English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy)](https://cn.bing.com/th?id=OHR.NutcrackerBallet_EN-US8927830113_UHD.jpg)
