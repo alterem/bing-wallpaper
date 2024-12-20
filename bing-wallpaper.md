@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-19 20:18:24
+#### 🚀Latest collection time: 2024-12-20 01:17:17
 
 2024-12-20 | [Christmas market in Sibiu, Romania (© Calin Stan/Alamy)](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-US9223739756_UHD.jpg)
 
