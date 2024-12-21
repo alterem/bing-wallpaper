@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-21 04:19:20
+#### 🚀Latest collection time: 2024-12-21 08:19:25
+
+2024-12-22 | [Loisach River at Lake Kochelsee, Bavaria, Germany (© Christian Back/eStock Photo)](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_UHD.jpg)
 
 2024-12-21 | [Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)](https://cn.bing.com/th?id=OHR.SantaClausVillage_EN-US9527661842_UHD.jpg)
 
