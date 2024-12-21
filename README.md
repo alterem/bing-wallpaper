@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-21 12:29:55
+#### 🚀Latest collection time: 2024-12-21 16:18:23
 
 ![Loisach River at Lake Kochelsee, Bavaria, Germany (© Christian Back/eStock Photo)](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_UHD.jpg&w=960)
 Today: [Loisach River at Lake Kochelsee, Bavaria, Germany (© Christian Back/eStock Photo)](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_UHD.jpg)
