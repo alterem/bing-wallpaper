@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-22 04:19:19
+#### 🚀Latest collection time: 2024-12-22 08:19:20
+
+2024-12-23 | [Christmas tree at Crystal Pier, Pacific Beach, San Diego, California (© SamAntonioPhotography/Getty Images)](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_UHD.jpg)
 
 2024-12-22 | [Loisach River at Lake Kochelsee, Bavaria, Germany (© Christian Back/eStock Photo)](https://cn.bing.com/th?id=OHR.BavarianWinter_EN-US9813996975_UHD.jpg)
 
