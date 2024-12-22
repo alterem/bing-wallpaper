@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-22 16:18:10
+#### 🚀Latest collection time: 2024-12-22 20:16:31
 
 2024-12-23 | [Christmas tree at Crystal Pier, Pacific Beach, San Diego, California (© SamAntonioPhotography/Getty Images)](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_UHD.jpg)
 
