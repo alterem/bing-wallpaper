@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-23 12:33:18
+#### 🚀Latest collection time: 2024-12-23 16:20:05
 
 ![Red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_UHD.jpg&w=960)
 Today: [Red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_UHD.jpg)
