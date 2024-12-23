@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-23 04:19:59
+#### 🚀Latest collection time: 2024-12-23 08:21:51
+
+2024-12-24 | [Red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-US0396321898_UHD.jpg)
 
 2024-12-23 | [Christmas tree at Crystal Pier, Pacific Beach, San Diego, California (© SamAntonioPhotography/Getty Images)](https://cn.bing.com/th?id=OHR.CrystalPier_EN-US0086755810_UHD.jpg)
 
