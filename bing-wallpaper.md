@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-25 12:31:46
+#### 🚀Latest collection time: 2024-12-25 16:19:36
 
 2024-12-26 | [Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)](https://cn.bing.com/th?id=OHR.ReindeerTrio_EN-US1000272747_UHD.jpg)
 
