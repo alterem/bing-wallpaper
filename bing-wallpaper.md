@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-25 04:19:59
+#### 🚀Latest collection time: 2024-12-25 08:21:06
+
+2024-12-26 | [Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)](https://cn.bing.com/th?id=OHR.ReindeerTrio_EN-US1000272747_UHD.jpg)
 
 2024-12-25 | [Christmas market scene in Germany (© Cyril Gosselin/Getty Images)](https://cn.bing.com/th?id=OHR.SantaSnowglobe_EN-US0704281966_UHD.jpg)
 
