@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-26 16:19:58
+#### 🚀Latest collection time: 2024-12-26 20:17:13
 
 ![Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_UHD.jpg&w=960)
 Today: [Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_UHD.jpg)
