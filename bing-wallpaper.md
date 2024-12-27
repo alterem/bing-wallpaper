@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-27 12:31:48
+#### 🚀Latest collection time: 2024-12-27 16:19:34
 
 2024-12-28 | [Lake Bled, Slovenia (© Kesu01/Getty Images)](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_UHD.jpg)
 
