@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-27 04:19:47
+#### 🚀Latest collection time: 2024-12-27 08:20:38
+
+2024-12-28 | [Lake Bled, Slovenia (© Kesu01/Getty Images)](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_UHD.jpg)
 
 2024-12-27 | [Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)](https://cn.bing.com/th?id=OHR.MouseholeXmas_EN-US1272999190_UHD.jpg)
 
