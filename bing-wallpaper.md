@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-28 04:19:17
+#### 🚀Latest collection time: 2024-12-28 08:19:24
+
+2024-12-29 | [A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-US6100263163_UHD.jpg)
 
 2024-12-28 | [Lake Bled, Slovenia (© Kesu01/Getty Images)](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-US5836531079_UHD.jpg)
 
