@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-31 16:19:22
+#### 🚀Latest collection time: 2024-12-31 20:17:16
 
 ![New Year's Eve fireworks over Copacabana Beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)](https://cn.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_UHD.jpg&w=960)
 Today: [New Year's Eve fireworks over Copacabana Beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)](https://cn.bing.com/th?id=OHR.RioNewYear_EN-US7216341802_UHD.jpg)
