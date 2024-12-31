@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2024-12-31 01:16:27
+#### 🚀Latest collection time: 2024-12-31 04:19:40
 
 ![Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_UHD.jpg&w=960)
 Today: [Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-US6905459745_UHD.jpg)
