@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-03 04:19:48
+#### 🚀Latest collection time: 2025-01-03 08:21:00
+
+2025-01-04 | [The Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_UHD.jpg)
 
 2025-01-03 | [Star trails over Ardez, Graubunden, Switzerland (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_UHD.jpg)
 
