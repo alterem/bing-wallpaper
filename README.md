@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-03 01:16:59
+#### 🚀Latest collection time: 2025-01-03 04:19:48
 
 ![Star trails over Ardez, Graubunden, Switzerland (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_UHD.jpg&w=960)
 Today: [Star trails over Ardez, Graubunden, Switzerland (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-US8405268165_UHD.jpg)
