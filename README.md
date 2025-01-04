@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-04 08:19:37
+#### 🚀Latest collection time: 2025-01-04 12:30:45
 
 ![Bản Giốc–Detian Falls on the Quây Sơn River, Vietnam (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_UHD.jpg&w=960)
 Today: [Bản Giốc–Detian Falls on the Quây Sơn River, Vietnam (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-US9133406245_UHD.jpg)
