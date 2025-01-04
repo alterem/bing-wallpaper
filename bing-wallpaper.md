@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-03 20:17:10
+#### 🚀Latest collection time: 2025-01-04 01:15:22
 
 2025-01-04 | [The Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-US6755564963_UHD.jpg)
 
