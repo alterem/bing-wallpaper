@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-05 08:19:18
+#### 🚀Latest collection time: 2025-01-05 12:30:34
 
 ![Plum-headed parakeet at Shimoga, Karnataka, India (© Hira Punjabi/Alamy)](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-US9359235355_UHD.jpg&w=960)
 Today: [Plum-headed parakeet at Shimoga, Karnataka, India (© Hira Punjabi/Alamy)](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-US9359235355_UHD.jpg)
