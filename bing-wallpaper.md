@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-08 04:20:07
+#### 🚀Latest collection time: 2025-01-08 08:21:43
+
+2025-01-09 | [Snow on the Great Wall of China (© View Stock/Alamy)](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg)
 
 2025-01-08 | [Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-US0112829210_UHD.jpg)
 
