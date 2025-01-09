@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-08 20:18:09
+#### 🚀Latest collection time: 2025-01-09 01:16:38
 
 ![Snow on the Great Wall of China (© View Stock/Alamy)](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg&w=960)
 Today: [Snow on the Great Wall of China (© View Stock/Alamy)](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-US0360405933_UHD.jpg)
