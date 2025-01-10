@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-09 20:18:18
+#### 🚀Latest collection time: 2025-01-10 01:18:57
 
 2025-01-10 | [The US Capitol dome with flags flying at half-staff in honor of former President Jimmy Carter, Washington, DC (© J. David Ake/Getty Images)](https://cn.bing.com/th?id=OHR.CarterMemorial_EN-US9400973867_UHD.jpg)
 
