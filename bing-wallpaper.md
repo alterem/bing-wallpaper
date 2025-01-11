@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-11 04:19:36
+#### 🚀Latest collection time: 2025-01-11 08:19:16
+
+2025-01-12 | [Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-US6991915839_UHD.jpg)
 
 2025-01-11 | [Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)](https://cn.bing.com/th?id=OHR.BubbleLake_EN-US6558545411_UHD.jpg)
 
