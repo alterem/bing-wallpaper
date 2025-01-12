@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-12 12:30:40
+#### 🚀Latest collection time: 2025-01-12 16:18:29
 
 2025-01-13 | [Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)](https://cn.bing.com/th?id=OHR.CrescentTail_EN-US7217745417_UHD.jpg)
 
