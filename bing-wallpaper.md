@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-13 12:34:45
+#### 🚀Latest collection time: 2025-01-13 16:22:03
 
 2025-01-14 | [Cottage with Tŵr Mawr Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)](https://cn.bing.com/th?id=OHR.CoastalWales_EN-US9397534673_UHD.jpg)
 
