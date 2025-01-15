@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-15 12:32:24
+#### 🚀Latest collection time: 2025-01-15 16:20:17
 
 2025-01-16 | [The Great Court of the British Museum, London, England (© Cavan Images/Offset/Shutterstock)](https://cn.bing.com/th?id=OHR.MuseumCourt_EN-US0003531841_UHD.jpg)
 
