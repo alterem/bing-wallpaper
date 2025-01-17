@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-17 08:19:58
+#### 🚀Latest collection time: 2025-01-17 12:31:33
 
 2025-01-18 | [Brown pelican, San Diego, California (© Arthur Morris/BIRDS AS ART/Getty Images)](https://cn.bing.com/th?id=OHR.PelicanPortrait_EN-US0510978735_UHD.jpg)
 
