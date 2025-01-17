@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-17 01:14:25
+#### 🚀Latest collection time: 2025-01-17 04:19:54
 
 2025-01-17 | [High Peaks Trail in Pinnacles National Park, San Benito County, California (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-US6350520288_UHD.jpg)
 
