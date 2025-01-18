@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-18 08:18:27
+#### 🚀Latest collection time: 2025-01-18 12:28:58
 
 2025-01-19 | [Sunset at White Sands National Park, New Mexico (© Image Professionals GmbH/Alamy)](https://cn.bing.com/th?id=OHR.WhiteSandsNP_EN-US0745183236_UHD.jpg)
 
