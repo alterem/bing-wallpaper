@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-22 04:19:39
+#### 🚀Latest collection time: 2025-01-22 08:21:33
+
+2025-01-23 | [Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_UHD.jpg)
 
 2025-01-22 | [Eurasian red squirrel (© Edwin Giesbers/Minden Pictures)](https://cn.bing.com/th?id=OHR.DutchSquirrel_EN-US1600993769_UHD.jpg)
 
