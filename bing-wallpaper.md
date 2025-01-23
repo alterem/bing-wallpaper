@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-23 04:19:10
+#### 🚀Latest collection time: 2025-01-23 08:20:58
+
+2025-01-24 | [Deer Valley at dusk, Park City, Utah (© Adventure_Photo/Getty Images)](https://cn.bing.com/th?id=OHR.DeerValley_EN-US2128104711_UHD.jpg)
 
 2025-01-23 | [Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)](https://cn.bing.com/th?id=OHR.PetraMonastery_EN-US1834130511_UHD.jpg)
 
