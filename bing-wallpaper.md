@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-24 04:19:29
+#### 🚀Latest collection time: 2025-01-24 08:20:45
+
+2025-01-25 | [Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)](https://cn.bing.com/th?id=OHR.IcelandGeyser_EN-US7648999118_UHD.jpg)
 
 2025-01-24 | [Deer Valley at dusk, Park City, Utah (© Adventure_Photo/Getty Images)](https://cn.bing.com/th?id=OHR.DeerValley_EN-US2128104711_UHD.jpg)
 
