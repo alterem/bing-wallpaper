@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-24 08:20:46
+#### 🚀Latest collection time: 2025-01-24 12:31:52
 
 ![Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)](https://cn.bing.com/th?id=OHR.IcelandGeyser_EN-US7648999118_UHD.jpg&w=960)
 Today: [Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)](https://cn.bing.com/th?id=OHR.IcelandGeyser_EN-US7648999118_UHD.jpg)
