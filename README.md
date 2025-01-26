@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-25 20:15:43
+#### 🚀Latest collection time: 2025-01-26 01:17:23
 
 ![Porto, Portugal (© Starcevic/Getty Images)](https://cn.bing.com/th?id=OHR.PortoSunset_EN-US7987153816_UHD.jpg&w=960)
 Today: [Porto, Portugal (© Starcevic/Getty Images)](https://cn.bing.com/th?id=OHR.PortoSunset_EN-US7987153816_UHD.jpg)
