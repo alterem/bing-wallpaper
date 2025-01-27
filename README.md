@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-27 01:16:19
+#### 🚀Latest collection time: 2025-01-27 04:20:15
 
 ![European beech forest in Belgium (© Philippe Moes/Minden Pictures)](https://cn.bing.com/th?id=OHR.FrostedBeech_EN-US8264026523_UHD.jpg&w=960)
 Today: [European beech forest in Belgium (© Philippe Moes/Minden Pictures)](https://cn.bing.com/th?id=OHR.FrostedBeech_EN-US8264026523_UHD.jpg)
