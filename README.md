@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-28 01:14:45
+#### 🚀Latest collection time: 2025-01-28 04:19:26
 
 ![Zoroaster Temple, Grand Canyon National Park, Arizona (© Nick Lake/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_UHD.jpg&w=960)
 Today: [Zoroaster Temple, Grand Canyon National Park, Arizona (© Nick Lake/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-US8514636141_UHD.jpg)
