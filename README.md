@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-28 12:32:09
+#### 🚀Latest collection time: 2025-01-28 16:20:03
 
 ![Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)](https://cn.bing.com/th?id=OHR.FlyingOwl_EN-US8779625388_UHD.jpg&w=960)
 Today: [Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)](https://cn.bing.com/th?id=OHR.FlyingOwl_EN-US8779625388_UHD.jpg)
