@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-29 16:20:37
+#### 🚀Latest collection time: 2025-01-29 20:17:18
 
 2025-01-30 | [Dragon dance, Wuhan, China (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)](https://cn.bing.com/th?id=OHR.LunarDragon_EN-US9011723385_UHD.jpg)
 
