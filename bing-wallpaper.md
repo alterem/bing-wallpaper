@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-31 04:19:27
+#### 🚀Latest collection time: 2025-01-31 08:20:11
+
+2025-02-01 | [Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_UHD.jpg)
 
 2025-01-31 | [La Brecha de Rolando, Ordesa y Monte Perdido National Park, Spain (© Inaki Relanzon/Nature Picture Library/Alamy)](https://cn.bing.com/th?id=OHR.OrdesaSpain_EN-US9252424531_UHD.jpg)
 
