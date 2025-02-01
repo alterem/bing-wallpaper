@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-01 12:28:56
+#### 🚀Latest collection time: 2025-02-01 16:17:50
 
 2025-02-02 | [National Museum of African American History & Culture, Washington, DC (© BrianPIrwin/Shutterstock)](https://cn.bing.com/th?id=OHR.AfricanMuseumDC_EN-US9749048351_UHD.jpg)
 
