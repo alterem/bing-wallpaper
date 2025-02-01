@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-01-31 20:17:03
+#### 🚀Latest collection time: 2025-02-01 01:19:11
 
 ![Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_UHD.jpg&w=960)
 Today: [Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)](https://cn.bing.com/th?id=OHR.PlainsZebra_EN-US9488790690_UHD.jpg)
