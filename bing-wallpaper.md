@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-03 01:16:12
+#### 🚀Latest collection time: 2025-02-03 04:19:42
 
 2025-02-03 | [Young alpine marmot (© Jonas Fichtner-Pflaum/Getty Images)](https://cn.bing.com/th?id=OHR.AustriaMarmot_EN-US0012248153_UHD.jpg)
 
