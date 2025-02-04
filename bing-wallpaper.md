@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-04 04:19:06
+#### 🚀Latest collection time: 2025-02-04 08:21:09
+
+2025-02-05 | [Golden Bridge, Bà Nà Hills, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)](https://cn.bing.com/th?id=OHR.GoldenBridge_EN-US3362533203_UHD.jpg)
 
 2025-02-04 | [Ribblehead Viaduct and Ingleborough mountain, North Yorkshire, England (© AWL Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.RibbleheadViaduct_EN-US0244245382_UHD.jpg)
 
