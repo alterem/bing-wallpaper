@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-04 20:17:36
+#### 🚀Latest collection time: 2025-02-05 01:16:28
 
 2025-02-05 | [Golden Bridge, Bà Nà Hills, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)](https://cn.bing.com/th?id=OHR.GoldenBridge_EN-US3362533203_UHD.jpg)
 
