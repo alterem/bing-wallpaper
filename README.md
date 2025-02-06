@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-06 01:16:26
+#### 🚀Latest collection time: 2025-02-06 04:19:50
 
 ![Scottish Blackface sheep, Aberdeenshire, Scotland  (© Mike Powles/Getty Images)](https://cn.bing.com/th?id=OHR.ScottishSheep_EN-US3449526052_UHD.jpg&w=960)
 Today: [Scottish Blackface sheep, Aberdeenshire, Scotland  (© Mike Powles/Getty Images)](https://cn.bing.com/th?id=OHR.ScottishSheep_EN-US3449526052_UHD.jpg)
