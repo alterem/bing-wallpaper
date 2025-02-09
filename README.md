@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-09 01:20:05
+#### 🚀Latest collection time: 2025-02-09 04:18:52
 
 ![Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)](https://cn.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_UHD.jpg&w=960)
 Today: [Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)](https://cn.bing.com/th?id=OHR.SnowySvaneti_EN-US6546788330_UHD.jpg)
