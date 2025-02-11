@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-10 20:17:15
+#### 🚀Latest collection time: 2025-02-11 01:15:59
 
 ![Art installation of umbrellas at Borough Market in London, England (© Malcolm P Chapman/Getty Images)](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_UHD.jpg&w=960)
 Today: [Art installation of umbrellas at Borough Market in London, England (© Malcolm P Chapman/Getty Images)](https://cn.bing.com/th?id=OHR.UmbrellaDay_EN-US6816351187_UHD.jpg)
