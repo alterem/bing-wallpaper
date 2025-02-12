@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-12 12:33:13
+#### 🚀Latest collection time: 2025-02-12 16:21:42
 
 2025-02-13 | [Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)](https://cn.bing.com/th?id=OHR.GalapagosIguana_EN-US6976814194_UHD.jpg)
 
