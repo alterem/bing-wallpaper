@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-12 01:16:17
+#### 🚀Latest collection time: 2025-02-12 04:19:45
 
 2025-02-12 | [Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)](https://cn.bing.com/th?id=OHR.YungangGrottoes_EN-US6896904893_UHD.jpg)
 
