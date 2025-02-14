@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-14 01:16:35
+#### 🚀Latest collection time: 2025-02-14 04:19:57
 
 2025-02-14 | [Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)](https://cn.bing.com/th?id=OHR.LakeTyrrell_EN-US7326346900_UHD.jpg)
 
