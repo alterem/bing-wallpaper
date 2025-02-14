@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-14 16:19:21
+#### 🚀Latest collection time: 2025-02-14 20:17:35
 
 ![Magellanic penguins in the Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_UHD.jpg&w=960)
 Today: [Magellanic penguins in the Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://cn.bing.com/th?id=OHR.PenguinLove_EN-US7515315710_UHD.jpg)
