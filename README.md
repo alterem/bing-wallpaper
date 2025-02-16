@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-16 08:19:17
+#### 🚀Latest collection time: 2025-02-16 12:32:16
 
 ![Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_UHD.jpg&w=960)
 Today: [Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)](https://cn.bing.com/th?id=OHR.HumpbackMother_EN-US8033380725_UHD.jpg)
