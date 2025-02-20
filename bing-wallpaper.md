@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-20 04:19:46
+#### 🚀Latest collection time: 2025-02-20 08:23:43
+
+2025-02-21 | [Alpenglow on Half Dome, Yosemite National Park, California (© Matthew Kuhns/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.AdamsYosemite_EN-US7924059397_UHD.jpg)
 
 2025-02-20 | [European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)](https://cn.bing.com/th?id=OHR.IceHoleOtter_EN-US7859051687_UHD.jpg)
 
