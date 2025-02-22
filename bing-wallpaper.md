@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-22 16:18:03
+#### 🚀Latest collection time: 2025-02-22 20:16:25
 
 2025-02-23 | [The Gateway Arch in St. Louis, Missouri (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_UHD.jpg)
 
