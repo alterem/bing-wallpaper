@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-23 08:20:30
+#### 🚀Latest collection time: 2025-02-23 12:30:05
 
 2025-02-24 | [Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_UHD.jpg)
 
