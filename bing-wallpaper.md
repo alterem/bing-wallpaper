@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-23 04:19:16
+#### 🚀Latest collection time: 2025-02-23 08:20:30
+
+2025-02-24 | [Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)](https://cn.bing.com/th?id=OHR.MtFujiSunrise_EN-US2218385739_UHD.jpg)
 
 2025-02-23 | [The Gateway Arch in St. Louis, Missouri (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.StLouisArch_EN-US1920417205_UHD.jpg)
 
