@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-25 04:20:36
+#### 🚀Latest collection time: 2025-02-25 08:22:11
+
+2025-02-26 | [Sandstone hoodoos, Bryce Canyon National Park, Utah (© Stephen Matera/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BryceHoodoos_EN-US2334649046_UHD.jpg)
 
 2025-02-25 | [Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)](https://cn.bing.com/th?id=OHR.GiantCuttlefish_EN-US2276053377_UHD.jpg)
 
