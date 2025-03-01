@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-02-28 20:18:19
+#### 🚀Latest collection time: 2025-03-01 01:23:59
 
 2025-03-01 | [Paro Taktsang, a Buddhist monastery in Bhutan (© Baron Reznik/Getty Images)](https://cn.bing.com/th?id=OHR.BhutanMonastery_EN-US2804780711_UHD.jpg)
 
