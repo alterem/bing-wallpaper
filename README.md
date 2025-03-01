@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-01 08:20:21
+#### 🚀Latest collection time: 2025-03-01 12:31:04
 
 ![Dr. Anna Howard Shaw leading a suffrage parade in 1910s New York City (© Bettmann/Getty Images)](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_UHD.jpg&w=960)
 Today: [Dr. Anna Howard Shaw leading a suffrage parade in 1910s New York City (© Bettmann/Getty Images)](https://cn.bing.com/th?id=OHR.SuffragetteCity_EN-US2883743791_UHD.jpg)
