@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-04 12:34:48
+#### 🚀Latest collection time: 2025-03-04 16:22:12
 
 ![Jackson Square, New Orleans, Louisiana (© SeanPavonePhoto/Getty Images)](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_UHD.jpg&w=960)
 Today: [Jackson Square, New Orleans, Louisiana (© SeanPavonePhoto/Getty Images)](https://cn.bing.com/th?id=OHR.MardiGrasJackson_EN-US3277683692_UHD.jpg)
