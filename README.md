@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-06 16:21:56
+#### 🚀Latest collection time: 2025-03-06 20:19:02
 
 ![Desert bighorn sheep in Valley of Fire State Park, Nevada (© Rachid Dahnoun/Cavan Images)](https://cn.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_UHD.jpg&w=960)
 Today: [Desert bighorn sheep in Valley of Fire State Park, Nevada (© Rachid Dahnoun/Cavan Images)](https://cn.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_UHD.jpg)
