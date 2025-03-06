@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-06 01:20:13
+#### 🚀Latest collection time: 2025-03-06 04:20:51
 
 2025-03-06 | [Aerial view of Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)](https://cn.bing.com/th?id=OHR.SuratThani_EN-US3326265231_UHD.jpg)
 
