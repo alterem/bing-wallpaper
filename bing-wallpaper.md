@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-07 04:20:50
+#### 🚀Latest collection time: 2025-03-07 08:21:53
+
+2025-03-08 | [Plum blossoms in China (© zhikun sun/Getty Images)](https://cn.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_UHD.jpg)
 
 2025-03-07 | [Desert bighorn sheep in Valley of Fire State Park, Nevada (© Rachid Dahnoun/Cavan Images)](https://cn.bing.com/th?id=OHR.NevadaBigHorns_EN-US3434258986_UHD.jpg)
 
