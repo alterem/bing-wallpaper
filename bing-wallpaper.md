@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-07 20:18:37
+#### 🚀Latest collection time: 2025-03-08 01:04:30
 
 2025-03-08 | [Plum blossoms in China (© zhikun sun/Getty Images)](https://cn.bing.com/th?id=OHR.PlumBlossom_EN-US7055526666_UHD.jpg)
 
