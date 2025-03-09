@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-08 20:14:12
+#### 🚀Latest collection time: 2025-03-09 01:09:59
 
 2025-03-09 | [Fearless Girl statue facing the New York Stock Exchange, New York City (© JOHANNES EISELE/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.FearlessWomen_EN-US7338738180_UHD.jpg)
 
