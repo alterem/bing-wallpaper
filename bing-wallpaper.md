@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-09 20:16:04
+#### 🚀Latest collection time: 2025-03-10 01:07:51
 
 2025-03-10 | [St. Mark's Clock Tower, Venice, Italy (© scaliger/Getty Images)](https://cn.bing.com/th?id=OHR.ItalyClock_EN-US7397391355_UHD.jpg)
 
