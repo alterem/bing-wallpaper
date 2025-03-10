@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-10 04:16:49
+#### 🚀Latest collection time: 2025-03-10 08:19:03
+
+2025-03-11 | [A lion sleeping in Ishasha Sector, Queen Elizabeth National Park, Uganda (© Gunter Nuyts/Getty Images)](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg)
 
 2025-03-10 | [St. Mark's Clock Tower, Venice, Italy (© scaliger/Getty Images)](https://cn.bing.com/th?id=OHR.ItalyClock_EN-US7397391355_UHD.jpg)
 
