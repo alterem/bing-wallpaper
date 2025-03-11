@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-11 04:21:12
+#### 🚀Latest collection time: 2025-03-11 08:22:29
+
+2025-03-12 | [Broken Beach in Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)](https://cn.bing.com/th?id=OHR.NusaPenida_EN-US8722184767_UHD.jpg)
 
 2025-03-11 | [A lion sleeping in Ishasha Sector, Queen Elizabeth National Park, Uganda (© Gunter Nuyts/Getty Images)](https://cn.bing.com/th?id=OHR.NappingLion_EN-US8441298325_UHD.jpg)
 
