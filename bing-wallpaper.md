@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-13 04:21:35
+#### 🚀Latest collection time: 2025-03-13 08:23:28
+
+2025-03-14 | [Holi celebration in Jaipur, India (© powerofforever/Getty Images)](https://cn.bing.com/th?id=OHR.HoliColors_EN-US9033637774_UHD.jpg)
 
 2025-03-13 | [Château de Sully-sur-Loire, Center-Val de Loire, France (© StockPhotoAstur/Shutterstock)](https://cn.bing.com/th?id=OHR.ChateauLoire_EN-US8827570825_UHD.jpg)
 
