@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-13 16:22:31
+#### 🚀Latest collection time: 2025-03-13 20:19:18
 
 ![Holi celebration in Jaipur, India (© powerofforever/Getty Images)](https://cn.bing.com/th?id=OHR.HoliColors_EN-US9033637774_UHD.jpg&w=960)
 Today: [Holi celebration in Jaipur, India (© powerofforever/Getty Images)](https://cn.bing.com/th?id=OHR.HoliColors_EN-US9033637774_UHD.jpg)
