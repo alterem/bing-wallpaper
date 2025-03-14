@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-14 16:21:13
+#### 🚀Latest collection time: 2025-03-14 20:18:11
 
 2025-03-15 | [Dolmen of Sorginetxe, Basque Country, Álava, Spain (© David Herraez Calzada/plainpicture)](https://cn.bing.com/th?id=OHR.BasqueDolmen_EN-US9089569057_UHD.jpg)
 
