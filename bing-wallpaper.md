@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-15 04:19:41
+#### 🚀Latest collection time: 2025-03-15 08:20:22
+
+2025-03-16 | [The Temple of Saturn in the Roman Forum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_UHD.jpg)
 
 2025-03-15 | [Dolmen of Sorginetxe, Basque Country, Álava, Spain (© David Herraez Calzada/plainpicture)](https://cn.bing.com/th?id=OHR.BasqueDolmen_EN-US9089569057_UHD.jpg)
 
