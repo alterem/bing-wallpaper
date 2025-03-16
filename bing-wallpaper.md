@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-16 04:20:14
+#### 🚀Latest collection time: 2025-03-16 08:20:14
+
+2025-03-17 | [Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)](https://cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_UHD.jpg)
 
 2025-03-16 | [The Temple of Saturn in the Roman Forum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)](https://cn.bing.com/th?id=OHR.ForumRomanum_EN-US9379132630_UHD.jpg)
 
