@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-17 04:21:30
+#### 🚀Latest collection time: 2025-03-17 08:24:08
+
+2025-03-18 | [Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_UHD.jpg)
 
 2025-03-17 | [Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)](https://cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_UHD.jpg)
 
