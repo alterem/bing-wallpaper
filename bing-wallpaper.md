@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-18 08:23:19
+#### 🚀Latest collection time: 2025-03-18 12:35:42
 
 2025-03-19 | [Red rock formations, Sedona, Arizona (© Jim Ekstrand/Alamy)](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_UHD.jpg)
 
