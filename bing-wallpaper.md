@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-19 04:20:38
+#### 🚀Latest collection time: 2025-03-19 08:23:22
+
+2025-03-20 | [A black heron canopy feeding, Chobe National Park, Botswana (© Paul Souders/Minden Pictures)](https://cn.bing.com/th?id=OHR.BlackHeron_EN-US9662351796_UHD.jpg)
 
 2025-03-19 | [Red rock formations, Sedona, Arizona (© Jim Ekstrand/Alamy)](https://cn.bing.com/th?id=OHR.SedonaSpring_EN-US9611080272_UHD.jpg)
 
