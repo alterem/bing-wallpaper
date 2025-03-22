@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-22 04:20:40
+#### 🚀Latest collection time: 2025-03-22 08:20:19
+
+2025-03-23 | [Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.CenoteLilies_EN-US1076301699_UHD.jpg)
 
 2025-03-22 | [Mist over a lowland rainforest, Danum Valley, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)](https://cn.bing.com/th?id=OHR.DanumValley_EN-US1030783251_UHD.jpg)
 
