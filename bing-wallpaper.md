@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-23 04:20:00
+#### 🚀Latest collection time: 2025-03-23 08:20:32
+
+2025-03-24 | [Lightning and storm clouds at sunset near Bowman, Nebraska (© john finney photography/Getty Images)](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_UHD.jpg)
 
 2025-03-23 | [Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.CenoteLilies_EN-US1076301699_UHD.jpg)
 
