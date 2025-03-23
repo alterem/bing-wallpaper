@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-23 01:26:44
+#### 🚀Latest collection time: 2025-03-23 04:20:00
 
 ![Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.CenoteLilies_EN-US1076301699_UHD.jpg&w=960)
 Today: [Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.CenoteLilies_EN-US1076301699_UHD.jpg)
