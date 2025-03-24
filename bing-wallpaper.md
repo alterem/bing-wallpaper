@@ -1,6 +1,8 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-24 04:21:20
+#### 🚀Latest collection time: 2025-03-24 08:23:56
+
+2025-03-25 | [Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-US1398774650_UHD.jpg)
 
 2025-03-24 | [Lightning and storm clouds at sunset near Bowman, Nebraska (© john finney photography/Getty Images)](https://cn.bing.com/th?id=OHR.NebraskaStorm_EN-US1163295363_UHD.jpg)
 
