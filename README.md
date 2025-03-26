@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-26 12:35:49
+#### 🚀Latest collection time: 2025-03-26 16:23:35
 
 ![Manatee in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida (© Stephen Frink/Getty Images)](https://cn.bing.com/th?id=OHR.CrystalManatee_EN-US1724106178_UHD.jpg&w=960)
 Today: [Manatee in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida (© Stephen Frink/Getty Images)](https://cn.bing.com/th?id=OHR.CrystalManatee_EN-US1724106178_UHD.jpg)
