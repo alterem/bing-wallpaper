@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-26 01:22:09
+#### 🚀Latest collection time: 2025-03-26 04:21:05
 
 ![Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_UHD.jpg&w=960)
 Today: [Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)](https://cn.bing.com/th?id=OHR.HobbitHole_EN-US1602468401_UHD.jpg)
