@@ -1,6 +1,6 @@
 ## Bing Wallpaper
 
-#### 🚀Latest collection time: 2025-03-27 08:23:05
+#### 🚀Latest collection time: 2025-03-27 12:36:09
 
 ![Odeon of Herodes Atticus, Acropolis of Athens, Greece (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.OdeonAthens_EN-US2159327450_UHD.jpg&w=960)
 Today: [Odeon of Herodes Atticus, Acropolis of Athens, Greece (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.OdeonAthens_EN-US2159327450_UHD.jpg)
